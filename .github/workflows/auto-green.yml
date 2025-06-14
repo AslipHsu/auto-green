@@ -1,0 +1,65 @@
+name: Auto Green
+
+on:
+  workflow_dispatch:
+    inputs:
+      log:
+        description: 'Commit message'
+        required: false
+        default: ''
+  schedule:
+    - cron: '0 */2 * * *' # 每 2 小時執行一次
+
+jobs:
+  autogreen:
+    runs-on: ubuntu-latest
+    steps:
+      - name: Checkout
+        uses: actions/checkout@v4
+
+      - name: Configure git identity
+        run: |
+          git config user.name "Kuan-Lun Wang"
+          git config user.email "polyphonicared@gmail.com"
+
+      - name: Update README.md with timestamp and quotes
+        run: |
+          TZ=Asia/Taipei
+          TIMESTAMP=$(TZ=$TZ date '+%Y-%m-%d %H:%M:%S %Z')
+
+          echo "Last updated at $TIMESTAMP" > README.md
+          echo "" >> README.md
+
+          COUNT=0
+          while [ $COUNT -lt 10 ]; do
+            RESPONSE=$(curl --insecure -s --max-time 5 https://api.quotable.io/random)
+            if echo "$RESPONSE" | jq -e '.content' > /dev/null 2>&1; then
+              QUOTE=$(echo "$RESPONSE" | jq -r '.content')
+              echo "$QUOTE" >> README.md
+              echo "" >> README.md
+              COUNT=$((COUNT + 1))
+            else
+              # 若 API 失敗就略過這次，不影響整體流程
+              echo "(Failed to fetch quote)" >> README.md
+              echo "" >> README.md
+              COUNT=$((COUNT + 1))
+            fi
+          done
+
+
+      - name: Commit and push
+        env:
+          TOKEN: ${{ secrets.GITHUB_TOKEN }}
+        run: |
+          TZ=Asia/Taipei
+          git add README.md
+          if [ "${{ github.event_name }}" = "workflow_dispatch" ]; then
+            COMMIT_MSG="${{ github.event.inputs.log }}"
+          else
+            TIMESTAMP=$(TZ=$TZ date '+%Y-%m-%d %H:%M:%S %Z')
+            COMMIT_MSG="Auto-update at $TIMESTAMP"
+          fi
+          git commit -m "$COMMIT_MSG"
+          git remote set-url origin https://x-access-token:${TOKEN}@github.com/${{ github.repository }}
+          git push
+
