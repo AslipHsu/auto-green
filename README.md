@@ -1,22 +1,22 @@
-Last updated at 2025-06-15 02:23:23 CST
+Last updated at 2025-06-15 02:25:18 CST
 
-A fine quotation is a diamond on the finger of a man of wit, and a pebble in the hand of a fool.
+Technology frightens me to death. It's designed by engineers to impress other engineers. And they always come with instruction booklets that are written by engineers for other engineers — which is why almost no technology ever works.
 
-The way a team plays as a whole determines its success. You may have the greatest bunch of individual stars in the world, but if they don't play together, the club won't be worth a dime.
+One loyal friend is worth ten thousand relatives.
 
-Just as a solid rock is not shaken by the storm, even so the wise are not affected by praise or blame.
+Our intention creates our reality.
 
-There is no passion to be found playing small - in settling for a life that is less than the one you are capable of living.
+The world has the habit of making room for the man whose actions show that he knows where he is going.
 
-Don't wait. The time will never be just right.
+A rolling stone gathers no moss.
 
-There is nothing so useless as doing efficiently that which should not be done at all.
+It isn't what happens to us that causes us to suffer; it's what we say to ourselves about what happens.
 
-Keep yourself to the sunshine and you cannot see the shadow.
+Baseball is the only field of endeavor where a man can succeed three times out of ten and be considered a good performer.
 
-Wisdom is nothing but a preparation of the soul, a capacity, a secret art of thinking, feeling and breathing thoughts of unity at every moment of life.
+Setting goals is the first step in turning the invisible into the visible.
 
-The greatest remedy for anger is delay.
+The most important thing is transforming our minds, for a new way of thinking, a new outlook: we should strive to develop a new inner world.
 
-The first duty of a human being is to assume the right functional relationship to society - more briefly, to find your real job, and do it.
+You and I are all as much continuous with the physical universe as a wave is continuous with the ocean.
 
