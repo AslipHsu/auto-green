@@ -19,8 +19,8 @@ jobs:
 
       - name: Configure git identity
         run: |
-          git config user.name "Kuan-Lun Wang"
-          git config user.email "polyphonicared@gmail.com"
+          git config user.name "AslipHsu"
+          git config user.email "bearlinm8866@gmail.com"
 
       - name: Update README.md with timestamp and quotes
         run: |
