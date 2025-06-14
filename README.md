@@ -1,22 +1,22 @@
-Last updated at 2025-06-15 00:24:12 CST
+Last updated at 2025-06-15 02:23:23 CST
 
-Before you can inspire with emotion, you must be swamped with it yourself. Before you can move their tears, your own must flow. To convince them, you must yourself believe.
+A fine quotation is a diamond on the finger of a man of wit, and a pebble in the hand of a fool.
 
-Do not follow where the path may lead. Go, instead, where there is no path and leave a trail.
+The way a team plays as a whole determines its success. You may have the greatest bunch of individual stars in the world, but if they don't play together, the club won't be worth a dime.
 
-Always keep your mind as bright and clear as the vast sky, the great ocean, and the highest peak, empty of all thoughts. Always keep your body filled with light and heat. Fill yourself with the power of wisdom and enlightenment.
+Just as a solid rock is not shaken by the storm, even so the wise are not affected by praise or blame.
 
-And as we let our own light shine, we unconsciously give other people permission to do the same.
+There is no passion to be found playing small - in settling for a life that is less than the one you are capable of living.
 
-Life is just a chance to grow a soul.
+Don't wait. The time will never be just right.
 
-Tell me and I forget. Teach me and I remember. Involve me and I learn.
+There is nothing so useless as doing efficiently that which should not be done at all.
 
-Both formerly and now, it is only suffering that I describe, and the cessation of suffering.
+Keep yourself to the sunshine and you cannot see the shadow.
 
-Strong people make as many mistakes as weak people. Difference is that strong people admit their mistakes, laugh at them, learn from them. That is how they become strong.
+Wisdom is nothing but a preparation of the soul, a capacity, a secret art of thinking, feeling and breathing thoughts of unity at every moment of life.
 
-To succeed, we must first believe that we can.
+The greatest remedy for anger is delay.
 
-When you are content to be simply yourself and don't compare or compete, everybody will respect you.
+The first duty of a human being is to assume the right functional relationship to society - more briefly, to find your real job, and do it.
 
