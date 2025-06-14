@@ -1,22 +1,22 @@
-Last updated at 2025-06-15 04:19:52 CST
+Last updated at 2025-06-15 06:18:19 CST
 
-The superior man is modest in his speech but exceeds in his actions.
+Fame usually comes to those who are thinking about something else.
 
-If you have made mistakes, there is always another chance for you. You may have a fresh start any moment you choose.
+As a water bead on a lotus leaf, as water on a red lily, does not adhere, so the sage does not adhere to the seen, the heard, or the sensed.
 
-So much technology, so little talent.
+If you have knowledge, let others light their candles in it.
 
-A youth, when at home, should be filial and, abroad, respectful to his elders. He should be earnest and truthful. He should overflow in love to all and cultivate the friendship of the good. When he has time and opportunity, after the performance of these things, he should employ them in polite studies.
+TV and the Internet are good because they keep stupid people from spending too much time out in public.
 
-Rock n' roll as a genre is different from pop and hip hop: it is about bands, and that for me suggests brotherhood, family, friendship and community.
+Go to your bosom: Knock there and ask your heart what it doth know.
 
-The attempt to combine wisdom and power has only rarely been successful and then only for a short while.
+Education is the most powerful weapon which you can use to change the world.
 
-Know, first, who you are, and then adorn yourself accordingly.
+I have always thought the actions of men the best interpreters of their thoughts.
 
-The way we communicate with others and with ourselves ultimately determines the quality of our lives.
+TV and the Internet are good because they keep stupid people from spending too much time out in public.
 
-Light tomorrow with today!
+The exercise of an extraordinary gift is the supremist pleasure in life.
 
-Life without love is like a tree without blossoms or fruit.
+Never say there is nothing beautiful in the world anymore. There is always something to make you wonder in the shape of a tree, the trembling of a leaf.
 
