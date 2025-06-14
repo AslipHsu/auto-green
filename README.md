@@ -1,22 +1,22 @@
-Last updated at 2025-06-15 02:25:18 CST
+Last updated at 2025-06-15 04:19:52 CST
 
-Technology frightens me to death. It's designed by engineers to impress other engineers. And they always come with instruction booklets that are written by engineers for other engineers — which is why almost no technology ever works.
+The superior man is modest in his speech but exceeds in his actions.
 
-One loyal friend is worth ten thousand relatives.
+If you have made mistakes, there is always another chance for you. You may have a fresh start any moment you choose.
 
-Our intention creates our reality.
+So much technology, so little talent.
 
-The world has the habit of making room for the man whose actions show that he knows where he is going.
+A youth, when at home, should be filial and, abroad, respectful to his elders. He should be earnest and truthful. He should overflow in love to all and cultivate the friendship of the good. When he has time and opportunity, after the performance of these things, he should employ them in polite studies.
 
-A rolling stone gathers no moss.
+Rock n' roll as a genre is different from pop and hip hop: it is about bands, and that for me suggests brotherhood, family, friendship and community.
 
-It isn't what happens to us that causes us to suffer; it's what we say to ourselves about what happens.
+The attempt to combine wisdom and power has only rarely been successful and then only for a short while.
 
-Baseball is the only field of endeavor where a man can succeed three times out of ten and be considered a good performer.
+Know, first, who you are, and then adorn yourself accordingly.
 
-Setting goals is the first step in turning the invisible into the visible.
+The way we communicate with others and with ourselves ultimately determines the quality of our lives.
 
-The most important thing is transforming our minds, for a new way of thinking, a new outlook: we should strive to develop a new inner world.
+Light tomorrow with today!
 
-You and I are all as much continuous with the physical universe as a wave is continuous with the ocean.
+Life without love is like a tree without blossoms or fruit.
 
