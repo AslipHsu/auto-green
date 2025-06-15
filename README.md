@@ -1,22 +1,22 @@
-Last updated at 2025-06-15 18:21:07 CST
+Last updated at 2025-06-15 20:37:25 CST
 
-The doctor of the future will give no medicine, but will interest her or his patients in the care of the human frame, in a proper diet, and in the cause and prevention of disease.
+Never tell people how to do things. Tell them what to do and they will surprise you with their ingenuity.
 
-He who knows himself is enlightened.
+An economist is an expert who will know tomorrow why the things he predicted yesterday didn't happen today.
 
-Be as you wish to seem.
+Success is getting what you want. Happiness is wanting what you get.
 
-Laws alone can not secure freedom of expression; in order that every man present his views without penalty there must be spirit of tolerance in the entire population.
+Some do not understand that we must die, But those who do realize this settle their quarrels.
 
-Patience is the companion of wisdom.
+The World is my country, all mankind are my brethren, and to do good is my religion.
 
-The teacher who is indeed wise does not bid you to enter the house of his wisdom but rather leads you to the threshold of your mind.
+Change in all things is sweet.
 
-The way we communicate with others and with ourselves ultimately determines the quality of our lives.
+As a water bead on a lotus leaf, as water on a red lily, does not adhere, so the sage does not adhere to the seen, the heard, or the sensed.
 
-True knowledge exists in knowing that you know nothing.
+The person who lives life fully, glowing with life's energy, is the person who lives a successful life.
 
-Friendship is almost always the union of a part of one mind with the part of another; people are friends in spots.
+No work or love will flourish out of guilt, fear, or hollowness of heart, just as no valid plans for the future can be made by those who have no capacity for living now.
 
-The highest stage in moral culture at which we can arrive is when we recognize that we ought to control our thoughts.
+The best preparation for tomorrow is doing your best today.
 
