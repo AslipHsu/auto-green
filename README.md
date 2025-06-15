@@ -1,22 +1,22 @@
-Last updated at 2025-06-15 09:51:39 CST
+Last updated at 2025-06-15 11:24:06 CST
 
-Sadness flies away on the wings of time.
+Anyone who doesn't take truth seriously in small matters cannot be trusted in large ones either.
 
-I am a firm believer in the people. If given the truth, they can be depended upon to meet any national crisis. The great point is to bring them the real facts.
+To have faith is to trust yourself to the water. When you swim you don't grab hold of the water, because if you do you will sink and drown. Instead you relax, and float.
 
-Setting goals is the first step in turning the invisible into the visible.
+Character is like a tree and reputation like a shadow. The shadow is what we think of it; the tree is the real thing.
 
-No man was ever wise by chance.
+Self-trust is the first secret of success.
 
-Wherever a man turns he can find someone who needs him.
+Once a new technology rolls over you, if you're not part of the steamroller, you're part of the road.
 
-In life, all good things come hard, but wisdom is the hardest to come by.
+Every person, all the events of your life are there because you have drawn them there. What you choose to do with them is up to you.
 
-Autumn is a second spring when every leaf is a flower.
+In all chaos there is a cosmos, in all disorder a secret order.
 
-In wartime, truth is so precious that she should always be attended by a bodyguard of lies.
+There surely is in human nature an inherent propensity to extract all the good out of all the evil.
 
-We need never be ashamed of our tears.
+Nothing diminishes anxiety faster than action.
 
-A man should look for what is, and not for what he thinks should be.
+Love is the only force capable of transforming an enemy into a friend.
 
