@@ -1,22 +1,22 @@
-Last updated at 2025-06-15 11:24:06 CST
+Last updated at 2025-06-15 12:29:19 CST
 
-Anyone who doesn't take truth seriously in small matters cannot be trusted in large ones either.
+Good judgment comes from experience, and a lot of that comes from bad judgment.
 
-To have faith is to trust yourself to the water. When you swim you don't grab hold of the water, because if you do you will sink and drown. Instead you relax, and float.
+The superior man blames himself. The inferior man blames others.
 
-Character is like a tree and reputation like a shadow. The shadow is what we think of it; the tree is the real thing.
+The ultimate promise of technology is to make us master of a world that we command by the push of a button.
 
-Self-trust is the first secret of success.
+Happiness often sneaks in through a door you didn't know you left open.
 
-Once a new technology rolls over you, if you're not part of the steamroller, you're part of the road.
+Whenever something negative happens to you, there is a deep lesson concealed within it.
 
-Every person, all the events of your life are there because you have drawn them there. What you choose to do with them is up to you.
+Those who are free of resentful thoughts surely find peace.
 
-In all chaos there is a cosmos, in all disorder a secret order.
+Everyone thinks of changing the world, but no one thinks of changing himself.
 
-There surely is in human nature an inherent propensity to extract all the good out of all the evil.
+If it turns out that there is a God, I don't think that he's evil. But the worst that you can say about him is that basically he's an underachiever.
 
-Nothing diminishes anxiety faster than action.
+It is never too late to be what you might have been.
 
-Love is the only force capable of transforming an enemy into a friend.
+Creativity comes from trust. Trust your instincts. And never hope more than you work.
 
