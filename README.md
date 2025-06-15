@@ -1,22 +1,22 @@
-Last updated at 2025-06-15 20:37:25 CST
+Last updated at 2025-06-15 22:16:48 CST
 
-Never tell people how to do things. Tell them what to do and they will surprise you with their ingenuity.
+If we could learn to like ourselves, even a little, maybe our cruelties and angers might melt away.
 
-An economist is an expert who will know tomorrow why the things he predicted yesterday didn't happen today.
+The trick is in what one emphasizes. We either make ourselves miserable, or we make ourselves happy. The amount of work is the same.
 
-Success is getting what you want. Happiness is wanting what you get.
+Wisdom has never made a bigot, but learning has.
 
-Some do not understand that we must die, But those who do realize this settle their quarrels.
+Those who dream by day are cognizant of many things which escape those who dream only by night.
 
-The World is my country, all mankind are my brethren, and to do good is my religion.
+Eternal nothingness is fine if you happen to be dressed for it.
 
-Change in all things is sweet.
+True friendship multiplies the good in life and divides its evils. Strive to have friends, for life without friends is like life on a desert island... to find one real friend in a lifetime is good fortune; to keep him is a blessing.
 
-As a water bead on a lotus leaf, as water on a red lily, does not adhere, so the sage does not adhere to the seen, the heard, or the sensed.
+Value your friendship. Value your relationships.
 
-The person who lives life fully, glowing with life's energy, is the person who lives a successful life.
+You have enemies? Good. That means you've stood up for something, sometime in your life.
 
-No work or love will flourish out of guilt, fear, or hollowness of heart, just as no valid plans for the future can be made by those who have no capacity for living now.
+Neatness begets order; but from order to taste there is the same difference as from taste to genius, or from love to friendship.
 
-The best preparation for tomorrow is doing your best today.
+I know but one freedom and that is the freedom of the mind.
 
