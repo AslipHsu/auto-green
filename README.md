@@ -1,22 +1,22 @@
-Last updated at 2025-06-16 02:25:56 CST
+Last updated at 2025-06-16 04:20:24 CST
 
-There are only two ways to live your life. One is as though nothing is a miracle. The other is as though everything is a miracle.
+Anticipate the difficult by managing the easy.
 
-Your mind will answer most questions if you learn to relax and wait for the answer.
+It is important to our friends to believe that we are unreservedly frank with them, and important to friendship that we are not.
 
-The more man meditates upon good thoughts, the better will be his world and the world at large.
+He who learns must suffer. And even in our sleep pain that cannot forget falls drop by drop upon the heart, and in our own despair, against our will, comes wisdom to us by the awful grace of God.
 
-It is impossible to escape the impression that people commonly use false standards of measurement — that they seek power, success and wealth for themselves and admire them in others, and that they underestimate what is of true value in life.
+A tree is known by its fruit; a man by his deeds. A good deed is never lost; he who sows courtesy reaps friendship, and he who plants kindness gathers love.
 
-When you see a good person, think of becoming like him. When you see someone not so good, reflect on your own weak points.
+Pain and foolishness lead to great bliss and complete knowledge, for Eternal Wisdom created nothing under the sun in vain.
 
-Go for it now. The future is promised to no one.
+A leader is best when people barely know he exists, when his work is done, his aim fulfilled, they will say: we did it ourselves.
 
-No pessimist ever discovered the secrets of the stars, or sailed to an uncharted land, or opened a new heaven to the human spirit.
+Nature is a mutable cloud which is always and never the same.
 
-Life isn't about finding yourself. Life is about creating yourself.
+The more sand that has escaped from the hourglass of our life, the clearer we should see through it.
 
-Aim for the moon. If you miss, you may hit a star.
+Love and friendship exclude each other.
 
-Time you enjoyed wasting was not wasted.
+If we look at the world with a love of life, the world will reveal its beauty to us.
 
