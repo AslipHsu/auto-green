@@ -1,22 +1,22 @@
-Last updated at 2025-06-15 22:16:48 CST
+Last updated at 2025-06-16 00:22:45 CST
 
-If we could learn to like ourselves, even a little, maybe our cruelties and angers might melt away.
+Good people are good because they've come to wisdom through failure. We get very little wisdom from success, you know.
 
-The trick is in what one emphasizes. We either make ourselves miserable, or we make ourselves happy. The amount of work is the same.
+To want to be what one can be is purpose in life.
 
-Wisdom has never made a bigot, but learning has.
+From error to error one discovers the entire truth.
 
-Those who dream by day are cognizant of many things which escape those who dream only by night.
+The ultimate promise of technology is to make us master of a world that we command by the push of a button.
 
-Eternal nothingness is fine if you happen to be dressed for it.
+Even an animal, if you show genuine affection, gradually trust develops... If you always showing bad face and beating, how can you develop friendship?
 
-True friendship multiplies the good in life and divides its evils. Strive to have friends, for life without friends is like life on a desert island... to find one real friend in a lifetime is good fortune; to keep him is a blessing.
+Let us be grateful to people who make us happy; they are the charming gardeners who make our souls blossom.
 
-Value your friendship. Value your relationships.
+The truest wisdom is a resolute determination.
 
-You have enemies? Good. That means you've stood up for something, sometime in your life.
+To choose what is difficult all one's days, as if it were easy, that is faith.
 
-Neatness begets order; but from order to taste there is the same difference as from taste to genius, or from love to friendship.
+Ignorant men raise questions that wise men answered a thousand years ago.
 
-I know but one freedom and that is the freedom of the mind.
+I want my friend to miss me as long as I miss him.
 
