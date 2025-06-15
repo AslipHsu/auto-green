@@ -1,22 +1,22 @@
-Last updated at 2025-06-15 06:18:19 CST
+Last updated at 2025-06-15 09:51:39 CST
 
-Fame usually comes to those who are thinking about something else.
+Sadness flies away on the wings of time.
 
-As a water bead on a lotus leaf, as water on a red lily, does not adhere, so the sage does not adhere to the seen, the heard, or the sensed.
+I am a firm believer in the people. If given the truth, they can be depended upon to meet any national crisis. The great point is to bring them the real facts.
 
-If you have knowledge, let others light their candles in it.
+Setting goals is the first step in turning the invisible into the visible.
 
-TV and the Internet are good because they keep stupid people from spending too much time out in public.
+No man was ever wise by chance.
 
-Go to your bosom: Knock there and ask your heart what it doth know.
+Wherever a man turns he can find someone who needs him.
 
-Education is the most powerful weapon which you can use to change the world.
+In life, all good things come hard, but wisdom is the hardest to come by.
 
-I have always thought the actions of men the best interpreters of their thoughts.
+Autumn is a second spring when every leaf is a flower.
 
-TV and the Internet are good because they keep stupid people from spending too much time out in public.
+In wartime, truth is so precious that she should always be attended by a bodyguard of lies.
 
-The exercise of an extraordinary gift is the supremist pleasure in life.
+We need never be ashamed of our tears.
 
-Never say there is nothing beautiful in the world anymore. There is always something to make you wonder in the shape of a tree, the trembling of a leaf.
+A man should look for what is, and not for what he thinks should be.
 
