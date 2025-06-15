@@ -1,22 +1,22 @@
-Last updated at 2025-06-15 14:27:23 CST
+Last updated at 2025-06-15 16:24:09 CST
 
-Our character is what we do when we think no one is looking.
+He who fears being conquered is sure of defeat.
 
-We read the world wrong and say that it deceives us.
+The doors of wisdom are never shut.
 
-Every friendship is different because everyone's personality is different.
+If you surrender to the wind, you can ride it.
 
-Don't wait. The time will never be just right.
+But at any rate, the point is that God is what nobody admits to being, and everybody really is.
 
-Sports do not build character. They reveal it.
+I think that novels that leave out technology misrepresent life as badly as Victorians misrepresented life by leaving out sex.
 
-The dream was always running ahead of me. To catch up, to live for a moment in unison with it, that was the miracle.
+It's better to be a lion for a day than a sheep all your life.
 
-Happiness does not come about only due to external circumstances; it mainly derives from inner attitudes.
+We respect our elders. There is wisdom that comes from experience, and I am not going to stop learning from wise counsel.
 
-The inherent vice of capitalism is the unequal sharing of blessings; the inherent virtue of socialism is the equal sharing of miseries.
+Do you want to know who you are? Don't ask. Act! Action will delineate and define you.
 
-Success in business requires training and discipline and hard work. But if you're not frightened by these things, the opportunities are just as great today as they ever were.
+For everything that lives is holy, life delights in life.
 
-When watching after yourself, you watch after others. When watching after others, you watch after yourself.
+Think as a wise man but communicate in the language of the people.
 
