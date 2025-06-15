@@ -1,22 +1,22 @@
-Last updated at 2025-06-16 04:20:24 CST
+Last updated at 2025-06-16 06:18:15 CST
 
-Anticipate the difficult by managing the easy.
+He who knows, does not speak. He who speaks, does not know.
 
-It is important to our friends to believe that we are unreservedly frank with them, and important to friendship that we are not.
+When one door of happiness closes, another opens; but often we look so long at the closed door that we do not see the one which has been opened for us.
 
-He who learns must suffer. And even in our sleep pain that cannot forget falls drop by drop upon the heart, and in our own despair, against our will, comes wisdom to us by the awful grace of God.
+Be the change that you want to see in the world.
 
-A tree is known by its fruit; a man by his deeds. A good deed is never lost; he who sows courtesy reaps friendship, and he who plants kindness gathers love.
+Friendship is also about liking a person for their failings, their weakness. It's also about mutual help, not about exploitation.
 
-Pain and foolishness lead to great bliss and complete knowledge, for Eternal Wisdom created nothing under the sun in vain.
+I never did a day's work in my life.  It was all fun.
 
-A leader is best when people barely know he exists, when his work is done, his aim fulfilled, they will say: we did it ourselves.
+Wisdom is the supreme part of happiness.
 
-Nature is a mutable cloud which is always and never the same.
+Without this playing with fantasy no creative work has ever yet come to birth. The debt we owe to the play of the imagination is incalculable.
 
-The more sand that has escaped from the hourglass of our life, the clearer we should see through it.
+To be wrong is nothing unless you continue to remember it.
 
-Love and friendship exclude each other.
+Some people thrive on huge, dramatic change. Some people prefer the slow and steady route. Do what's right for you.
 
-If we look at the world with a love of life, the world will reveal its beauty to us.
+It does not matter how slowly you go as long as you do not stop.
 
