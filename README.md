@@ -1,22 +1,22 @@
-Last updated at 2025-06-15 12:29:19 CST
+Last updated at 2025-06-15 14:27:23 CST
 
-Good judgment comes from experience, and a lot of that comes from bad judgment.
+Our character is what we do when we think no one is looking.
 
-The superior man blames himself. The inferior man blames others.
+We read the world wrong and say that it deceives us.
 
-The ultimate promise of technology is to make us master of a world that we command by the push of a button.
+Every friendship is different because everyone's personality is different.
 
-Happiness often sneaks in through a door you didn't know you left open.
+Don't wait. The time will never be just right.
 
-Whenever something negative happens to you, there is a deep lesson concealed within it.
+Sports do not build character. They reveal it.
 
-Those who are free of resentful thoughts surely find peace.
+The dream was always running ahead of me. To catch up, to live for a moment in unison with it, that was the miracle.
 
-Everyone thinks of changing the world, but no one thinks of changing himself.
+Happiness does not come about only due to external circumstances; it mainly derives from inner attitudes.
 
-If it turns out that there is a God, I don't think that he's evil. But the worst that you can say about him is that basically he's an underachiever.
+The inherent vice of capitalism is the unequal sharing of blessings; the inherent virtue of socialism is the equal sharing of miseries.
 
-It is never too late to be what you might have been.
+Success in business requires training and discipline and hard work. But if you're not frightened by these things, the opportunities are just as great today as they ever were.
 
-Creativity comes from trust. Trust your instincts. And never hope more than you work.
+When watching after yourself, you watch after others. When watching after others, you watch after yourself.
 
