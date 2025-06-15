@@ -1,22 +1,22 @@
-Last updated at 2025-06-16 00:22:45 CST
+Last updated at 2025-06-16 02:25:56 CST
 
-Good people are good because they've come to wisdom through failure. We get very little wisdom from success, you know.
+There are only two ways to live your life. One is as though nothing is a miracle. The other is as though everything is a miracle.
 
-To want to be what one can be is purpose in life.
+Your mind will answer most questions if you learn to relax and wait for the answer.
 
-From error to error one discovers the entire truth.
+The more man meditates upon good thoughts, the better will be his world and the world at large.
 
-The ultimate promise of technology is to make us master of a world that we command by the push of a button.
+It is impossible to escape the impression that people commonly use false standards of measurement — that they seek power, success and wealth for themselves and admire them in others, and that they underestimate what is of true value in life.
 
-Even an animal, if you show genuine affection, gradually trust develops... If you always showing bad face and beating, how can you develop friendship?
+When you see a good person, think of becoming like him. When you see someone not so good, reflect on your own weak points.
 
-Let us be grateful to people who make us happy; they are the charming gardeners who make our souls blossom.
+Go for it now. The future is promised to no one.
 
-The truest wisdom is a resolute determination.
+No pessimist ever discovered the secrets of the stars, or sailed to an uncharted land, or opened a new heaven to the human spirit.
 
-To choose what is difficult all one's days, as if it were easy, that is faith.
+Life isn't about finding yourself. Life is about creating yourself.
 
-Ignorant men raise questions that wise men answered a thousand years ago.
+Aim for the moon. If you miss, you may hit a star.
 
-I want my friend to miss me as long as I miss him.
+Time you enjoyed wasting was not wasted.
 
