@@ -1,22 +1,22 @@
-Last updated at 2025-06-16 16:29:00 CST
+Last updated at 2025-06-16 18:22:44 CST
 
-Blessed are the hearts that can bend; they shall never be broken.
+One's friends are that part of the human race with which one can be human.
 
-Give a man a fish and you feed him for a day. Teach him how to fish and you feed him for a lifetime.
+The most complicated achievements of thought are possible without the assistance of consciousness.
 
-To change one's life, start immediately, do it flamboyantly, no exceptions.
+Wisdom begins at the end.
 
-Action may not always bring happiness; but there is no happiness without action.
+We can do no great things, only small things with great love.
 
-Go put your creed into the deed. Nor speak with double tongue.
+Russia is a riddle wrapped in a mystery inside an enigma.
 
-Argue for your limitations, and sure enough they're yours.
+Imagination rules the world.
 
-That old law about 'an eye for an eye' leaves everybody blind. The time is always right to do the right thing.
+Our virtues and our failings are inseparable, like force and matter. When they separate, man is no more.
 
-To profit from good advice requires more wisdom than to give it.
+The more sand that has escaped from the hourglass of our life, the clearer we should see through it.
 
-I can't listen to that much Wagner. I start getting the urge to conquer Poland.
+To support mother and father, to cherish partner and children, and to be engaged in peaceful occupation — this is the greatest blessing.
 
-If you cannot do great things, do small things in a great way.
+Freedom is what you do with what's been done to you.
 
