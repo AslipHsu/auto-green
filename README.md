@@ -1,22 +1,22 @@
-Last updated at 2025-06-16 06:18:15 CST
+Last updated at 2025-06-16 09:46:36 CST
 
-He who knows, does not speak. He who speaks, does not know.
+Be like the flower, turn your face to the sun.
 
-When one door of happiness closes, another opens; but often we look so long at the closed door that we do not see the one which has been opened for us.
+Each day provides its own gifts.
 
-Be the change that you want to see in the world.
+Imagination rules the world.
 
-Friendship is also about liking a person for their failings, their weakness. It's also about mutual help, not about exploitation.
+It isn't what happens to us that causes us to suffer; it's what we say to ourselves about what happens.
 
-I never did a day's work in my life.  It was all fun.
+Imagination is the living power and prime agent of all human perception.
 
-Wisdom is the supreme part of happiness.
+Happiness depends upon ourselves.
 
-Without this playing with fantasy no creative work has ever yet come to birth. The debt we owe to the play of the imagination is incalculable.
+If you don't know where you are going, you will probably end up somewhere else.
 
-To be wrong is nothing unless you continue to remember it.
+You can tell whether a man is clever by his answers. You can tell whether a man is wise by his questions.
 
-Some people thrive on huge, dramatic change. Some people prefer the slow and steady route. Do what's right for you.
+The bird of paradise alights only upon the hand that does not grasp.
 
-It does not matter how slowly you go as long as you do not stop.
+None knows the weight of another's burden.
 
