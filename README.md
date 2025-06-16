@@ -1,22 +1,22 @@
-Last updated at 2025-06-16 14:31:48 CST
+Last updated at 2025-06-16 16:29:00 CST
 
-You might well remember that nothing can bring you success but yourself.
+Blessed are the hearts that can bend; they shall never be broken.
 
-Quality is never an accident; it is always the result of intelligent effort.
+Give a man a fish and you feed him for a day. Teach him how to fish and you feed him for a lifetime.
 
-Imagination allows us to escape the predictable. It enables us to reply to the common wisdom that we cannot soar by saying, 'Just watch!'
+To change one's life, start immediately, do it flamboyantly, no exceptions.
 
-Your friends will know you better in the first minute you meet than your acquaintances will know you in a thousand years.
+Action may not always bring happiness; but there is no happiness without action.
 
-The only way to tell the truth is to speak with kindness. Only the words of a loving man can be heard.
+Go put your creed into the deed. Nor speak with double tongue.
 
-Beware of missing chances; otherwise it may be altogether too late someday.
+Argue for your limitations, and sure enough they're yours.
 
-It is through science that we prove, but through intuition that we discover.
+That old law about 'an eye for an eye' leaves everybody blind. The time is always right to do the right thing.
 
-Forgiveness is choosing to love. It is the first skill of self-giving love.
+To profit from good advice requires more wisdom than to give it.
 
-Where there is love there is life.
+I can't listen to that much Wagner. I start getting the urge to conquer Poland.
 
-Nature takes away any faculty that is not used.
+If you cannot do great things, do small things in a great way.
 
