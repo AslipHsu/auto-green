@@ -1,22 +1,22 @@
-Last updated at 2025-06-16 09:46:36 CST
+Last updated at 2025-06-16 11:21:48 CST
 
-Be like the flower, turn your face to the sun.
+All the great performers I have worked with are fueled by a personal dream.
 
-Each day provides its own gifts.
+Leaders aren't born they are made. And they are made just like anything else, through hard work. And that's the price we'll have to pay to achieve that goal, or any goal.
 
-Imagination rules the world.
+If we open a quarrel between past and present, we shall find that we have lost the future.
 
-It isn't what happens to us that causes us to suffer; it's what we say to ourselves about what happens.
+Real success is finding your lifework in the work that you love.
 
-Imagination is the living power and prime agent of all human perception.
+If only wed stop trying to be happy wed have a pretty good time.
 
-Happiness depends upon ourselves.
+One's friends are that part of the human race with which one can be human.
 
-If you don't know where you are going, you will probably end up somewhere else.
+The noblest worship is to make yourself as good and as just as you can.
 
-You can tell whether a man is clever by his answers. You can tell whether a man is wise by his questions.
+All children are artists. The problem is how to remain an artist once he grows up.
 
-The bird of paradise alights only upon the hand that does not grasp.
+I'd rather regret the things I've done than regret the things I haven't done.
 
-None knows the weight of another's burden.
+A lot of people give up just before theyre about to make it. You know you never know when that next obstacle is going to be the last one.
 
