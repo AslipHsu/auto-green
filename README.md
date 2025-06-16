@@ -1,22 +1,22 @@
-Last updated at 2025-06-17 02:29:05 CST
+Last updated at 2025-06-17 04:22:23 CST
 
-Freedom is what you do with what's been done to you.
+Beauty is not in the face; beauty is a light in the heart.
 
-Life has no blessing like a prudent friend.
+A quarrel between friends, when made up, adds a new tie to friendship.
 
-You can always tell a real friend: when you've made a fool of yourself he doesn't feel you've done a permanent job.
+People take different roads seeking fulfilment and happiness. Just because they're not on your road doesn't mean they've gotten lost.
 
-A man's growth is seen in the successive choirs of his friends
+Kindness is more important than wisdom, and the recognition of this is the beginning of wisdom.
 
-I have an everyday religion that works for me. Love yourself first, and everything else falls into line.
+Whatever we expect with confidence becomes our own self-fulfilling prophecy.
 
-Much wisdom often goes with fewer words.
+I am like a falling star who has finally found her place next to another in a lovely constellation, where we will sparkle in the heavens forever.
 
-Spread love everywhere you go. Let no one ever come to you without leaving happier.
+Excellence is to do a common thing in an uncommon way.
 
-How is it possible that a being with such sensitive jewels as the eyes, such enchanted musical instruments as the ears, and such fabulous arabesque of nerves as the brain can experience itself anything less than a god.
+Of all possessions a friend is the most precious.
 
-In action a great heart is the chief qualification. In work, a great head.
+Sustaining true friendship is a lot more challenging than we give it credit for.
 
-It is only the great hearted who can be true friends. The mean and cowardly, can never know what true friendship means.
+Just as a flower, which seems beautiful has color but no perfume, so are the fruitless words of a man who speaks them but does them not.
 
