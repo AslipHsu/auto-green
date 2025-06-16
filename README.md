@@ -1,22 +1,22 @@
-Last updated at 2025-06-16 18:22:44 CST
+Last updated at 2025-06-16 20:42:31 CST
 
-One's friends are that part of the human race with which one can be human.
-
-The most complicated achievements of thought are possible without the assistance of consciousness.
-
-Wisdom begins at the end.
-
-We can do no great things, only small things with great love.
-
-Russia is a riddle wrapped in a mystery inside an enigma.
-
-Imagination rules the world.
+Everyone has been made for some particular work, and the desire for that work has been put in every heart.
 
 Our virtues and our failings are inseparable, like force and matter. When they separate, man is no more.
 
-The more sand that has escaped from the hourglass of our life, the clearer we should see through it.
+True friendship ought never to conceal what it thinks.
 
-To support mother and father, to cherish partner and children, and to be engaged in peaceful occupation — this is the greatest blessing.
+The ego is nothing other than the focus of conscious attention.
 
-Freedom is what you do with what's been done to you.
+Don't believe what your eyes are telling you. All they show is limitation. Look with your understanding, find out what you already know, and you'll see the way to fly.
+
+It's easier to resist at the beginning than at the end.
+
+The only true wisdom is in knowing you know nothing.
+
+Living at risk is jumping off the cliff and building your wings on the way down.
+
+I am a man of fixed and unbending principles, the first of which is to be flexible at all times.
+
+If a man watches three football games in a row, he should be declared legally dead.
 
