@@ -1,22 +1,22 @@
-Last updated at 2025-06-16 22:20:29 CST
+Last updated at 2025-06-17 00:26:38 CST
 
-Coming together is a beginning; keeping together is progress; working together is success.
+By nature, man hates change; seldom will he quit his old home till it has actually fallen around his ears.
 
-His lack of education is more than compensated for by his keenly developed moral bankruptcy.
+My best friend is the one who brings out the best in me.
 
-I never think of the future - it comes soon enough.
+Friendship often ends in love, but love in friendship - never.
 
-It is very easy to forgive others their mistakes; it takes more grit to forgive them for having witnessed your own.
+I took a speed-reading course and read 'War and Peace' in twenty minutes. It involves Russia.
 
-Many of life's failures are people who did not realize how close they were to success when they gave up.
+I endeavor to be wise when I cannot be merry, easy when I cannot be glad, content with what cannot be mended and patient when there is no redress.
 
-Let me tell you the secret that has led me to my goal: my strength lies solely in my tenacity.
+We all grow up. Hopefully, we get wiser. Age brings wisdom, and fatherhood changes one's life completely.
 
-Action may not always bring happiness; but there is no happiness without action.
+A successful person is one who can lay a firm foundation with the bricks that others throw at him or her.
 
-I want you to be everything that's you, deep at the center of your being.
+Fame usually comes to those who are thinking about something else.
 
-Technology is teaching us to be human again.
+You and I are all as much continuous with the physical universe as a wave is continuous with the ocean.
 
-I don't look to jump over 7-foot bars; I look around for 1-foot bars that I can step over.
+Friendship with oneself is all important because without it one cannot be friends with anybody else in the world.
 
