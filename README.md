@@ -1,22 +1,22 @@
-Last updated at 2025-06-17 00:26:38 CST
+Last updated at 2025-06-17 02:29:05 CST
 
-By nature, man hates change; seldom will he quit his old home till it has actually fallen around his ears.
+Freedom is what you do with what's been done to you.
 
-My best friend is the one who brings out the best in me.
+Life has no blessing like a prudent friend.
 
-Friendship often ends in love, but love in friendship - never.
+You can always tell a real friend: when you've made a fool of yourself he doesn't feel you've done a permanent job.
 
-I took a speed-reading course and read 'War and Peace' in twenty minutes. It involves Russia.
+A man's growth is seen in the successive choirs of his friends
 
-I endeavor to be wise when I cannot be merry, easy when I cannot be glad, content with what cannot be mended and patient when there is no redress.
+I have an everyday religion that works for me. Love yourself first, and everything else falls into line.
 
-We all grow up. Hopefully, we get wiser. Age brings wisdom, and fatherhood changes one's life completely.
+Much wisdom often goes with fewer words.
 
-A successful person is one who can lay a firm foundation with the bricks that others throw at him or her.
+Spread love everywhere you go. Let no one ever come to you without leaving happier.
 
-Fame usually comes to those who are thinking about something else.
+How is it possible that a being with such sensitive jewels as the eyes, such enchanted musical instruments as the ears, and such fabulous arabesque of nerves as the brain can experience itself anything less than a god.
 
-You and I are all as much continuous with the physical universe as a wave is continuous with the ocean.
+In action a great heart is the chief qualification. In work, a great head.
 
-Friendship with oneself is all important because without it one cannot be friends with anybody else in the world.
+It is only the great hearted who can be true friends. The mean and cowardly, can never know what true friendship means.
 
