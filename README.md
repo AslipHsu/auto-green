@@ -1,22 +1,22 @@
-Last updated at 2025-06-17 04:22:23 CST
+Last updated at 2025-06-17 06:19:13 CST
 
-Beauty is not in the face; beauty is a light in the heart.
+I know that inner wisdom is more precious than wealth. The more you spend it, the more you gain.
 
-A quarrel between friends, when made up, adds a new tie to friendship.
+This is the final test of a gentleman: his respect for those who can be of no possible value to him.
 
-People take different roads seeking fulfilment and happiness. Just because they're not on your road doesn't mean they've gotten lost.
+You cannot change anything in your life with intention alone, which can become a watered-down, occasional hope that you'll get to tomorrow. Intention without action is useless.
 
-Kindness is more important than wisdom, and the recognition of this is the beginning of wisdom.
+I will love the light for it shows me the way, yet I will endure the darkness because it shows me the stars.
 
-Whatever we expect with confidence becomes our own self-fulfilling prophecy.
+To avoid criticism, do nothing, say nothing, be nothing.
 
-I am like a falling star who has finally found her place next to another in a lovely constellation, where we will sparkle in the heavens forever.
+Life is what happens while you are making other plans.
 
-Excellence is to do a common thing in an uncommon way.
+Failure will never overtake me if my determination to succeed is strong enough.
 
-Of all possessions a friend is the most precious.
+Love at first sight is easy to understand; it's when two people have been looking at each other for a lifetime that it becomes a miracle.
 
-Sustaining true friendship is a lot more challenging than we give it credit for.
+Whatever you do in life, surround yourself with smart people who'll argue with you.
 
-Just as a flower, which seems beautiful has color but no perfume, so are the fruitless words of a man who speaks them but does them not.
+Time changes everything except something within us which is always surprised by change.
 
