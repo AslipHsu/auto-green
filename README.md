@@ -1,22 +1,22 @@
-Last updated at 2025-06-16 11:21:48 CST
+Last updated at 2025-06-16 12:32:14 CST
 
-All the great performers I have worked with are fueled by a personal dream.
+I do not believe in a fate that falls on men however they act; but I do believe in a fate that falls on them unless they act.
 
-Leaders aren't born they are made. And they are made just like anything else, through hard work. And that's the price we'll have to pay to achieve that goal, or any goal.
+Patience is the companion of wisdom.
 
-If we open a quarrel between past and present, we shall find that we have lost the future.
+I always wanted to be somebody, but I should have been more specific.
 
-Real success is finding your lifework in the work that you love.
+Don't talk about what you have done or what you are going to do.
 
-If only wed stop trying to be happy wed have a pretty good time.
+There is nothing impossible to him who will try.
 
-One's friends are that part of the human race with which one can be human.
+By believing passionately in something that does not yet exist, we create it.
 
-The noblest worship is to make yourself as good and as just as you can.
+The invariable mark of wisdom is to see the miraculous in the common.
 
-All children are artists. The problem is how to remain an artist once he grows up.
+True friendship multiplies the good in life and divides its evils. Strive to have friends, for life without friends is like life on a desert island... to find one real friend in a lifetime is good fortune; to keep him is a blessing.
 
-I'd rather regret the things I've done than regret the things I haven't done.
+Problems are not stop signs, they are guidelines.
 
-A lot of people give up just before theyre about to make it. You know you never know when that next obstacle is going to be the last one.
+Opportunity often comes disguised in the form of misfortune, or temporary defeat.
 
