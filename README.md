@@ -1,22 +1,22 @@
-Last updated at 2025-06-16 12:32:14 CST
+Last updated at 2025-06-16 14:31:48 CST
 
-I do not believe in a fate that falls on men however they act; but I do believe in a fate that falls on them unless they act.
+You might well remember that nothing can bring you success but yourself.
 
-Patience is the companion of wisdom.
+Quality is never an accident; it is always the result of intelligent effort.
 
-I always wanted to be somebody, but I should have been more specific.
+Imagination allows us to escape the predictable. It enables us to reply to the common wisdom that we cannot soar by saying, 'Just watch!'
 
-Don't talk about what you have done or what you are going to do.
+Your friends will know you better in the first minute you meet than your acquaintances will know you in a thousand years.
 
-There is nothing impossible to him who will try.
+The only way to tell the truth is to speak with kindness. Only the words of a loving man can be heard.
 
-By believing passionately in something that does not yet exist, we create it.
+Beware of missing chances; otherwise it may be altogether too late someday.
 
-The invariable mark of wisdom is to see the miraculous in the common.
+It is through science that we prove, but through intuition that we discover.
 
-True friendship multiplies the good in life and divides its evils. Strive to have friends, for life without friends is like life on a desert island... to find one real friend in a lifetime is good fortune; to keep him is a blessing.
+Forgiveness is choosing to love. It is the first skill of self-giving love.
 
-Problems are not stop signs, they are guidelines.
+Where there is love there is life.
 
-Opportunity often comes disguised in the form of misfortune, or temporary defeat.
+Nature takes away any faculty that is not used.
 
