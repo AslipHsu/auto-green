@@ -1,22 +1,22 @@
-Last updated at 2025-06-16 20:42:31 CST
+Last updated at 2025-06-16 22:20:29 CST
 
-Everyone has been made for some particular work, and the desire for that work has been put in every heart.
+Coming together is a beginning; keeping together is progress; working together is success.
 
-Our virtues and our failings are inseparable, like force and matter. When they separate, man is no more.
+His lack of education is more than compensated for by his keenly developed moral bankruptcy.
 
-True friendship ought never to conceal what it thinks.
+I never think of the future - it comes soon enough.
 
-The ego is nothing other than the focus of conscious attention.
+It is very easy to forgive others their mistakes; it takes more grit to forgive them for having witnessed your own.
 
-Don't believe what your eyes are telling you. All they show is limitation. Look with your understanding, find out what you already know, and you'll see the way to fly.
+Many of life's failures are people who did not realize how close they were to success when they gave up.
 
-It's easier to resist at the beginning than at the end.
+Let me tell you the secret that has led me to my goal: my strength lies solely in my tenacity.
 
-The only true wisdom is in knowing you know nothing.
+Action may not always bring happiness; but there is no happiness without action.
 
-Living at risk is jumping off the cliff and building your wings on the way down.
+I want you to be everything that's you, deep at the center of your being.
 
-I am a man of fixed and unbending principles, the first of which is to be flexible at all times.
+Technology is teaching us to be human again.
 
-If a man watches three football games in a row, he should be declared legally dead.
+I don't look to jump over 7-foot bars; I look around for 1-foot bars that I can step over.
 
