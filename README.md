@@ -1,22 +1,22 @@
-Last updated at 2025-06-17 22:20:18 CST
+Last updated at 2025-06-18 00:26:45 CST
 
-A true friend is the most precious of all possessions and the one we take the least thought about acquiring.
+I know not age, nor weariness nor defeat.
 
-No snowflake in an avalanche ever feels responsible.
+All serious daring starts from within.
 
-I have friends in overalls whose friendship I would not swap for the favor of the kings of the world.
+I cannot even imagine where I would be today were it not for that handful of friends who have given me a heart full of joy. Let's face it, friends make life a lot more fun.
 
-To be aware of a single shortcoming in oneself is more useful than to be aware of a thousand in someone else.
+Remember that a gesture of friendship, no matter how small, is always appreciated.
 
-Everything that happens as it should, and if you observe carefully, you will find this to be so.
+No one can make you feel inferior without your consent.
 
-Wisdom is the right use of knowledge. To know is not to be wise. Many men know a great deal and are all the greater fools for it. There is no fool so great a fool as a knowing fool. But to know how to use knowledge is to have wisdom.
+No person is your friend who demands your silence or denies your right to grow.
 
-The problem with Google is you have 360 degrees of omnidirectional information on a linear basis, but the algorithms for irony and ambiguity are not there. And those are the algorithms of wisdom.
+If you lose today, win tomorrow. In this never-ending spirit of challenge is the heart of a victor.
 
-An economist is an expert who will know tomorrow why the things he predicted yesterday didn't happen today.
+An invincible determination can accomplish almost anything and in this lies the great distinction between great men and little men.
 
-Everything you are against weakens you. Everything you are for empowers you.
+A friend may well be reckoned the masterpiece of nature.
 
-Great minds discuss ideas; average minds discuss events; small minds discuss people.
+Opportunity is missed by most because it is dressed in overalls and looks like work.
 
