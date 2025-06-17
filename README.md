@@ -1,22 +1,22 @@
-Last updated at 2025-06-17 09:43:25 CST
+Last updated at 2025-06-17 11:17:39 CST
 
-It is the mark of an educated mind to be able to entertain a thought without accepting it.
+The universe is made of stories, not atoms.
 
-Prejudice is a burden that confuses the past, threatens the future and renders the present inaccessible.
+But man is not made for defeat. A man can be destroyed but not defeated.
 
-Logic is the beginning of wisdom, not the end.
+How we spend our days is, of course, how we spend our lives.
 
-The virtue of justice consists in moderation, as regulated by wisdom.
+Every person, all the events of your life are there because you have drawn them there. What you choose to do with them is up to you.
 
-Marriage is the highest state of friendship. If happy, it lessens our cares by dividing them, at the same time that it doubles our pleasures by mutual participation.
+You teach best what you most need to learn.
 
-One who gains strength by overcoming obstacles possesses the only strength which can overcome adversity.
+The best way to predict your future is to create it.
 
-It is good even for old men to learn wisdom.
+Liberty, taking the word in its concrete sense, consists in the ability to choose.
 
-You always succeed in producing a result.
+Tennis is a perfect combination of violent action taking place in an atmosphere of total tranquillity.
 
-It is the province of knowledge to speak, and it is the privilege of wisdom to listen.
+Be sure you put your feet in the right place, then stand firm.
 
-A heart well prepared for adversity in bad times hopes, and in good times fears for a change in fortune.
+Look back over the past, with its changing empires that rose and fell, and you can foresee the future, too.
 
