@@ -1,22 +1,22 @@
-Last updated at 2025-06-17 20:42:16 CST
+Last updated at 2025-06-17 22:20:18 CST
 
-We aim above the mark to hit the mark.
+A true friend is the most precious of all possessions and the one we take the least thought about acquiring.
 
-People take different roads seeking fulfilment and happiness. Just because they're not on your road doesn't mean they've gotten lost.
+No snowflake in an avalanche ever feels responsible.
 
-All phenomena are preceded by the mind, created by the mind, and have the mind as their master.
+I have friends in overalls whose friendship I would not swap for the favor of the kings of the world.
 
-Ignorant men raise questions that wise men answered a thousand years ago.
+To be aware of a single shortcoming in oneself is more useful than to be aware of a thousand in someone else.
 
-Wisdom is the reward you get for a lifetime of listening when you'd have preferred to talk.
+Everything that happens as it should, and if you observe carefully, you will find this to be so.
 
-Along with success comes a reputation for wisdom.
+Wisdom is the right use of knowledge. To know is not to be wise. Many men know a great deal and are all the greater fools for it. There is no fool so great a fool as a knowing fool. But to know how to use knowledge is to have wisdom.
 
-Now this is not the end. It is not even the beginning of the end. But it is, perhaps, the end of the beginning.
+The problem with Google is you have 360 degrees of omnidirectional information on a linear basis, but the algorithms for irony and ambiguity are not there. And those are the algorithms of wisdom.
 
-The great myth of our times is that technology is communication.
+An economist is an expert who will know tomorrow why the things he predicted yesterday didn't happen today.
 
-If you want things to be different, perhaps the answer is to become different yourself.
+Everything you are against weakens you. Everything you are for empowers you.
 
-Take rest; a field that has rested gives a bountiful crop.
+Great minds discuss ideas; average minds discuss events; small minds discuss people.
 
