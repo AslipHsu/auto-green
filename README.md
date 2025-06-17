@@ -1,22 +1,22 @@
-Last updated at 2025-06-18 02:28:51 CST
+Last updated at 2025-06-18 04:21:39 CST
 
-The least movement is of importance to all nature. The entire ocean is affected by a pebble.
+Kind words can be short and easy to speak, but their echoes are truly endless.
 
-Knowledge speaks, but wisdom listens.
+Go put your creed into the deed. Nor speak with double tongue.
 
-The doctor of the future will give no medicine, but will interest her or his patients in the care of the human frame, in a proper diet, and in the cause and prevention of disease.
+Hope arouses, as nothing else can arouse, a passion for the possible.
 
-When a thing is done, it's done. Don't look back. Look forward to your next objective.
+He who hath many friends hath none.
 
-On every thorn, delightful wisdom grows, in every rill a sweet instruction flows.
+The price of greatness is responsibility.
 
-The greatest part of our happiness depends on our dispositions, not our circumstances.
+Happiness often sneaks in through a door you didn't know you left open.
 
-There is no great genius without some touch of madness.
+Age does not protect you from love. But love, to some extent, protects you from age.
 
-Time changes everything except something within us which is always surprised by change.
+Friendship multiplies the good of life and divides the evil.
 
-Respect should be earned by actions, and not acquired by years.
+I never considered a difference of opinion in politics, in religion, in philosophy, as cause for withdrawing from a friend.
 
-There is no great genius without some touch of madness.
+Lord, make me an instrument of thy peace. Where there is hatred, let me sow love.
 
