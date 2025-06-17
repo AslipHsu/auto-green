@@ -1,22 +1,22 @@
-Last updated at 2025-06-17 14:30:06 CST
+Last updated at 2025-06-17 16:27:59 CST
 
-Learn from yesterday, live for today, hope for tomorrow.
+Positive thinking will let you do everything better than negative thinking will.
 
-No act of kindness, no matter how small, is ever wasted.
+It is with words as with sunbeams. The more they are condensed, the deeper they burn.
 
-The secret of getting ahead is getting started.
+A rolling stone gathers no moss.
 
-It's better to be a lion for a day than a sheep all your life.
+Wisdom ceases to be wisdom when it becomes too proud to weep, too grave to laugh, and too selfish to seek other than itself.
 
-It is not in the stars to hold our destiny but in ourselves.
+The past has no power to stop you from being present now. Only your grievance about the past can do that.
 
-He who talks more is sooner exhausted.
+When you reach the end of your rope, tie a knot in it and hang on.
 
-Should a seeker not find a companion who is better or equal, let them resolutely pursue a solitary course.
+I will prepare and someday my chance will come.
 
-Do not go where the path may lead, go instead where there is no path and leave a trail.
+If a man does his best, what else is there?
 
-Friendship is but another name for an alliance with the follies and the misfortunes of others. Our own share of miseries is sufficient: why enter then as volunteers into those of another?
+Only when we are no longer afraid do we begin to live.
 
-Just trust yourself, then you will know how to live.
+A friend may well be reckoned the masterpiece of nature.
 
