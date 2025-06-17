@@ -1,22 +1,22 @@
-Last updated at 2025-06-17 06:19:13 CST
+Last updated at 2025-06-17 09:43:25 CST
 
-I know that inner wisdom is more precious than wealth. The more you spend it, the more you gain.
+It is the mark of an educated mind to be able to entertain a thought without accepting it.
 
-This is the final test of a gentleman: his respect for those who can be of no possible value to him.
+Prejudice is a burden that confuses the past, threatens the future and renders the present inaccessible.
 
-You cannot change anything in your life with intention alone, which can become a watered-down, occasional hope that you'll get to tomorrow. Intention without action is useless.
+Logic is the beginning of wisdom, not the end.
 
-I will love the light for it shows me the way, yet I will endure the darkness because it shows me the stars.
+The virtue of justice consists in moderation, as regulated by wisdom.
 
-To avoid criticism, do nothing, say nothing, be nothing.
+Marriage is the highest state of friendship. If happy, it lessens our cares by dividing them, at the same time that it doubles our pleasures by mutual participation.
 
-Life is what happens while you are making other plans.
+One who gains strength by overcoming obstacles possesses the only strength which can overcome adversity.
 
-Failure will never overtake me if my determination to succeed is strong enough.
+It is good even for old men to learn wisdom.
 
-Love at first sight is easy to understand; it's when two people have been looking at each other for a lifetime that it becomes a miracle.
+You always succeed in producing a result.
 
-Whatever you do in life, surround yourself with smart people who'll argue with you.
+It is the province of knowledge to speak, and it is the privilege of wisdom to listen.
 
-Time changes everything except something within us which is always surprised by change.
+A heart well prepared for adversity in bad times hopes, and in good times fears for a change in fortune.
 
