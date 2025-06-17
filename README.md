@@ -1,22 +1,22 @@
-Last updated at 2025-06-17 12:28:15 CST
+Last updated at 2025-06-17 14:30:06 CST
 
-Fears are nothing more than a state of mind.
+Learn from yesterday, live for today, hope for tomorrow.
 
-If you would take, you must first give, this is the beginning of intelligence.
+No act of kindness, no matter how small, is ever wasted.
 
-All perceiving is also thinking, all reasoning is also intuition, all observation is also invention.
+The secret of getting ahead is getting started.
 
-Consider that not only do negative thoughts and emotions destroy our experience of peace, but they also undermine our health.
+It's better to be a lion for a day than a sheep all your life.
 
-There are two primary choices in life: to accept conditions as they exist or accept responsibility for changing them.
+It is not in the stars to hold our destiny but in ourselves.
 
-Knowing your own darkness is the best method for dealing with the darkness of other people.
+He who talks more is sooner exhausted.
 
-No one has ever become poor by giving.
+Should a seeker not find a companion who is better or equal, let them resolutely pursue a solitary course.
 
-Share your smile with the world. It's a symbol of friendship and peace.
+Do not go where the path may lead, go instead where there is no path and leave a trail.
 
-The time to repair the roof is when the sun is shining.
+Friendship is but another name for an alliance with the follies and the misfortunes of others. Our own share of miseries is sufficient: why enter then as volunteers into those of another?
 
-To enjoy life, we must touch much of it lightly.
+Just trust yourself, then you will know how to live.
 
