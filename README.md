@@ -1,22 +1,22 @@
-Last updated at 2025-06-17 16:27:59 CST
+Last updated at 2025-06-17 18:22:08 CST
 
-Positive thinking will let you do everything better than negative thinking will.
+Without hard work, nothing grows but weeds.
 
-It is with words as with sunbeams. The more they are condensed, the deeper they burn.
+It requires wisdom to understand wisdom: the music is nothing if the audience is deaf.
 
-A rolling stone gathers no moss.
+To be wrong is nothing unless you continue to remember it.
 
-Wisdom ceases to be wisdom when it becomes too proud to weep, too grave to laugh, and too selfish to seek other than itself.
+Success is not final; failure is not fatal: it is the courage to continue that counts.
 
-The past has no power to stop you from being present now. Only your grievance about the past can do that.
+One man practicing sportsmanship is far better than a hundred teaching it.
 
-When you reach the end of your rope, tie a knot in it and hang on.
+I am always doing that which I cannot do, in order that I may learn how to do it.
 
-I will prepare and someday my chance will come.
+It is not only for what we do that we are held responsible, but also for what we do not do.
 
-If a man does his best, what else is there?
+Never find fault with the absent.
 
-Only when we are no longer afraid do we begin to live.
+The only way to have a friend is to be one.
 
-A friend may well be reckoned the masterpiece of nature.
+As we express our gratitude, we must never forget that the highest appreciation is not to utter words, but to live by them.
 
