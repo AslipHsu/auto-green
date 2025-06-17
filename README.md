@@ -1,22 +1,22 @@
-Last updated at 2025-06-17 18:22:08 CST
+Last updated at 2025-06-17 20:42:16 CST
 
-Without hard work, nothing grows but weeds.
+We aim above the mark to hit the mark.
 
-It requires wisdom to understand wisdom: the music is nothing if the audience is deaf.
+People take different roads seeking fulfilment and happiness. Just because they're not on your road doesn't mean they've gotten lost.
 
-To be wrong is nothing unless you continue to remember it.
+All phenomena are preceded by the mind, created by the mind, and have the mind as their master.
 
-Success is not final; failure is not fatal: it is the courage to continue that counts.
+Ignorant men raise questions that wise men answered a thousand years ago.
 
-One man practicing sportsmanship is far better than a hundred teaching it.
+Wisdom is the reward you get for a lifetime of listening when you'd have preferred to talk.
 
-I am always doing that which I cannot do, in order that I may learn how to do it.
+Along with success comes a reputation for wisdom.
 
-It is not only for what we do that we are held responsible, but also for what we do not do.
+Now this is not the end. It is not even the beginning of the end. But it is, perhaps, the end of the beginning.
 
-Never find fault with the absent.
+The great myth of our times is that technology is communication.
 
-The only way to have a friend is to be one.
+If you want things to be different, perhaps the answer is to become different yourself.
 
-As we express our gratitude, we must never forget that the highest appreciation is not to utter words, but to live by them.
+Take rest; a field that has rested gives a bountiful crop.
 
