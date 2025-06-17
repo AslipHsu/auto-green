@@ -1,22 +1,22 @@
-Last updated at 2025-06-18 00:26:45 CST
+Last updated at 2025-06-18 02:28:51 CST
 
-I know not age, nor weariness nor defeat.
+The least movement is of importance to all nature. The entire ocean is affected by a pebble.
 
-All serious daring starts from within.
+Knowledge speaks, but wisdom listens.
 
-I cannot even imagine where I would be today were it not for that handful of friends who have given me a heart full of joy. Let's face it, friends make life a lot more fun.
+The doctor of the future will give no medicine, but will interest her or his patients in the care of the human frame, in a proper diet, and in the cause and prevention of disease.
 
-Remember that a gesture of friendship, no matter how small, is always appreciated.
+When a thing is done, it's done. Don't look back. Look forward to your next objective.
 
-No one can make you feel inferior without your consent.
+On every thorn, delightful wisdom grows, in every rill a sweet instruction flows.
 
-No person is your friend who demands your silence or denies your right to grow.
+The greatest part of our happiness depends on our dispositions, not our circumstances.
 
-If you lose today, win tomorrow. In this never-ending spirit of challenge is the heart of a victor.
+There is no great genius without some touch of madness.
 
-An invincible determination can accomplish almost anything and in this lies the great distinction between great men and little men.
+Time changes everything except something within us which is always surprised by change.
 
-A friend may well be reckoned the masterpiece of nature.
+Respect should be earned by actions, and not acquired by years.
 
-Opportunity is missed by most because it is dressed in overalls and looks like work.
+There is no great genius without some touch of madness.
 
