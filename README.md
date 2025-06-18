@@ -1,22 +1,22 @@
-Last updated at 2025-06-18 22:20:04 CST
+Last updated at 2025-06-19 00:26:32 CST
 
-Hope arouses, as nothing else can arouse, a passion for the possible.
+Appreciation is the highest form of prayer, for it acknowledges the presence of good wherever you shine the light of your thankful thoughts.
 
-Bodily exercise, when compulsory, does no harm to the body; but knowledge which is acquired under compulsion obtains no hold on the mind.
+'As I am, so are they; as they are, so am I.' Comparing others with oneself, do not kill nor cause others to kill.
 
-True silence is the rest of the mind; it is to the spirit what sleep is to the body, nourishment and refreshment.
+The world is a book, and those who do not travel read only a page.
 
-Anything you really want, you can attain, if you really go after it.
+Hell, there are no rules here-- we're trying to accomplish something.
 
-Honesty is the first chapter in the book of wisdom.
+There is only one success - to be able to spend your life in your own way.
 
-Beware lest you lose the substance by grasping at the shadow.
+You're never a loser until you quit trying.
 
-How many cares one loses when one decides not to be something but to be someone.
+When you are content to be simply yourself and don't compare or compete, everybody will respect you.
 
-Neatness begets order; but from order to taste there is the same difference as from taste to genius, or from love to friendship.
+Look back over the past, with its changing empires that rose and fell, and you can foresee the future, too.
 
-If we learn to open our hearts, anyone, including the people who drive us crazy, can be our teacher.
+We can only be said to be alive in those moments when our hearts are conscious of our treasures.
 
-If I know what love is, it is because of you.
+Your talent is God's gift to you. What you do with it is your gift back to God.
 
