@@ -1,22 +1,22 @@
-Last updated at 2025-06-18 11:16:32 CST
+Last updated at 2025-06-18 12:28:38 CST
 
-Let go of your attachment to being right, and suddenly your mind is more open. You're able to benefit from the unique viewpoints of others, without being crippled by your own judgement.
+Your sacred space is where you can find yourself again and again.
 
-Very little is needed to make a happy life; it is all within yourself, in your way of thinking.
+A successful person is one who can lay a firm foundation with the bricks that others throw at him or her.
 
-Life is like a sewer. What you get out of it depends on what you put into it.
+Where there is great love, there are always miracles.
 
-Perseverance is a great element of success. If you only knock long enough and loud enough at the gate, you are sure to wake up somebody.
+You can tell whether a man is clever by his answers. You can tell whether a man is wise by his questions.
 
-Friendship increases in visiting friends, but in visiting them seldom.
+If you cannot do great things, do small things in a great way.
 
-Learn from yesterday, live for today, hope for tomorrow.
+Value your friendship. Value your relationships.
 
-Nothing is softer or more flexible than water, yet nothing can resist it.
+Wise men talk because they have something to say; fools, because they have to say something.
 
-Do not wait; the time will never be 'just right.' Start where you stand, and work with whatever tools you may have at your command, and better tools will be found as you go along.
+Every day I remind myself that my inner and outer life are based on the labors of other men, living and dead, and that I must exert myself in order to give in the same measure as I have received and am still receiving.
 
-The ladder of success is never crowded at the top.
+Once a new technology rolls over you, if you're not part of the steamroller, you're part of the road.
 
-He is a wise man who does not grieve for the things which he has not but rejoices for those which he has.
+Myths which are believed in tend to become true.
 
