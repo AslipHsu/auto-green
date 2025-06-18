@@ -1,22 +1,22 @@
-Last updated at 2025-06-19 02:28:49 CST
+Last updated at 2025-06-19 04:23:33 CST
 
-By oneself is evil done; by oneself is one defiled. By oneself is evil left undone; by oneself is one made pure.
+You cannot have what you do not want.
 
-Happiness can exist only in acceptance.
+People grow through experience if they meet life honestly and courageously. This is how character is built.
 
-Russia is a riddle wrapped in a mystery inside an enigma.
+The function of wisdom is to discriminate between good and evil.
 
-Discovery consists of seeing what everybody has seen and thinking what nobody else has thought.
+The grand essentials of happiness are: something to do, something to love, and something to hope for.
 
-The ultimate promise of technology is to make us master of a world that we command by the push of a button.
+We need to find the courage to say NO to the things and people that are not serving us if we want to rediscover ourselves and live our lives with authenticity.
 
-What we achieve inwardly will change outer reality.
+The superior man acts before he speaks, and afterwards speaks according to his action.
 
-To go against the dominant thinking of your friends, of most of the people you see every day, is perhaps the most difficult act of heroism you can perform.
+Every friendship goes through ups and downs. Dysfunctional patterns set in; external situations cause internal friction; you grow apart and then bounce back together.
 
-Happiness is the reward we get for living to the highest right we know.
+Does wisdom perhaps appear on the earth as a raven which is inspired by the smell of carrion?
 
-Golf is a game in which one endeavors to control a ball with implements ill adapted for the purpose.
+Whoever is happy will make others happy, too.
 
-I'm astounded by people who want to 'know' the universe when it's hard enough to find your way around Chinatown.
+Peace begins with a smile.
 
