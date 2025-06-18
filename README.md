@@ -1,22 +1,22 @@
-Last updated at 2025-06-18 14:29:58 CST
+Last updated at 2025-06-18 16:27:39 CST
 
-Mountains cannot be surmounted except by winding paths.
+Leaders aren't born they are made. And they are made just like anything else, through hard work. And that's the price we'll have to pay to achieve that goal, or any goal.
 
-I always wanted to be somebody, but I should have been more specific.
+Trust is the lubrication that makes it possible for organizations to work.
 
-The secret of success is constancy to purpose.
+You learn to speak by speaking, to study by studying, to run by running, to work by working; in just the same way, you learn to love by loving.
 
-The power of intuitive understanding will protect you from harm until the end of your days.
+Imagination is more important than knowledge. For while knowledge defines all we currently know and understand, imagination points to all we might yet discover and create.
 
-I do not believe in a fate that falls on men however they act; but I do believe in a fate that falls on man unless they act.
+Kindness is more important than wisdom, and the recognition of this is the beginning of wisdom.
 
-Commitment is an act, not a word.
+Gratitude is not only the greatest of virtues, but the parent of all the others.
 
-All I can say about life is, Oh God, enjoy it!
+We never understand how little we need in this world until we know the loss of it.
 
-Experience is not what happens to you; it's what you do with what happens to you.
+Knowledge comes, but wisdom lingers. It may not be difficult to store up in the mind a vast quantity of facts within a comparatively short time, but the ability to form judgments requires the severe discipline of hard work and the tempering heat of experience and maturity.
 
-Wisdom has never made a bigot, but learning has.
+You can't blame gravity for falling in love.
 
-Some people thrive on huge, dramatic change. Some people prefer the slow and steady route. Do what's right for you.
+Avoid having your ego so close to your position that when your position falls, your ego goes with it.
 
