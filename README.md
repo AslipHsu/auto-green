@@ -1,22 +1,22 @@
-Last updated at 2025-06-18 20:42:05 CST
+Last updated at 2025-06-18 22:20:04 CST
 
-The best preparation for tomorrow is doing your best today.
+Hope arouses, as nothing else can arouse, a passion for the possible.
 
-Men in general judge more from appearances than from reality. All men have eyes, but few have the gift of penetration.
+Bodily exercise, when compulsory, does no harm to the body; but knowledge which is acquired under compulsion obtains no hold on the mind.
 
-No pessimist ever discovered the secrets of the stars, or sailed to an uncharted land, or opened a new heaven to the human spirit.
+True silence is the rest of the mind; it is to the spirit what sleep is to the body, nourishment and refreshment.
 
-It is on our failures that we base a new and different and better success.
+Anything you really want, you can attain, if you really go after it.
 
-The best thing in every noble dream is the dreamer...
+Honesty is the first chapter in the book of wisdom.
 
-You are the only person on earth who can use your ability.
+Beware lest you lose the substance by grasping at the shadow.
 
-With the new day comes new strength and new thoughts.
+How many cares one loses when one decides not to be something but to be someone.
 
-Ask yourself the secret of your success. Listen to your answer and practice it.
+Neatness begets order; but from order to taste there is the same difference as from taste to genius, or from love to friendship.
 
-Well done is better than well said.
+If we learn to open our hearts, anyone, including the people who drive us crazy, can be our teacher.
 
-The trouble with most people is that they think with their hopes or fears or wishes rather than with their minds.
+If I know what love is, it is because of you.
 
