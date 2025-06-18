@@ -1,22 +1,22 @@
-Last updated at 2025-06-18 16:27:39 CST
+Last updated at 2025-06-18 18:21:41 CST
 
-Leaders aren't born they are made. And they are made just like anything else, through hard work. And that's the price we'll have to pay to achieve that goal, or any goal.
+A good plan violently executed now is better than a perfect plan executed next week.
 
-Trust is the lubrication that makes it possible for organizations to work.
+Men of perverse opinion do not know the excellence of what is in their hands, till someone dash it from them.
 
-You learn to speak by speaking, to study by studying, to run by running, to work by working; in just the same way, you learn to love by loving.
+Never do things others can do and will do, if there are things others cannot do or will not do.
 
-Imagination is more important than knowledge. For while knowledge defines all we currently know and understand, imagination points to all we might yet discover and create.
+When a thing is done, it's done. Don't look back. Look forward to your next objective.
 
-Kindness is more important than wisdom, and the recognition of this is the beginning of wisdom.
+If you must tell me your opinions, tell me what you believe in. I have plenty of doubts of my own.
 
-Gratitude is not only the greatest of virtues, but the parent of all the others.
+Communications tools don't get socially interesting until they get technologically boring.
 
-We never understand how little we need in this world until we know the loss of it.
+He who can curb his wrath as soon as it arises, as a timely antidote will check snake's venom that so quickly spreads, — such a monk gives up the here and the beyond, just as a serpent sheds its worn-out skin.
 
-Knowledge comes, but wisdom lingers. It may not be difficult to store up in the mind a vast quantity of facts within a comparatively short time, but the ability to form judgments requires the severe discipline of hard work and the tempering heat of experience and maturity.
+Imagination rules the world.
 
-You can't blame gravity for falling in love.
+The root of suffering is attachment.
 
-Avoid having your ego so close to your position that when your position falls, your ego goes with it.
+Everything you are against weakens you. Everything you are for empowers you.
 
