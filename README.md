@@ -1,22 +1,22 @@
-Last updated at 2025-06-19 04:23:33 CST
+Last updated at 2025-06-19 06:18:52 CST
 
-You cannot have what you do not want.
+Love demands infinitely less than friendship.
 
-People grow through experience if they meet life honestly and courageously. This is how character is built.
+One's philosophy is not best expressed in words; it is expressed in the choices one makes... and the choices we make are ultimately our responsibility.
 
-The function of wisdom is to discriminate between good and evil.
+Be kind whenever possible. It is always possible.
 
-The grand essentials of happiness are: something to do, something to love, and something to hope for.
+Life is what happens while you are making other plans.
 
-We need to find the courage to say NO to the things and people that are not serving us if we want to rediscover ourselves and live our lives with authenticity.
+The wise man does not lay up his own treasures. The more he gives to others, the more he has for his own.
 
-The superior man acts before he speaks, and afterwards speaks according to his action.
+There are no failures. Just experiences and your reactions to them.
 
-Every friendship goes through ups and downs. Dysfunctional patterns set in; external situations cause internal friction; you grow apart and then bounce back together.
+Judge nothing, you will be happy. Forgive everything, you will be happier. Love everything, you will be happiest.
 
-Does wisdom perhaps appear on the earth as a raven which is inspired by the smell of carrion?
+Remember that sometimes not getting what you want is a wonderful stroke of luck.
 
-Whoever is happy will make others happy, too.
+Take things as they are. Punch when you have to punch. Kick when you have to kick.
 
-Peace begins with a smile.
+Rare as is true love, true friendship is rarer.
 
