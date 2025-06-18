@@ -1,22 +1,22 @@
-Last updated at 2025-06-19 00:26:32 CST
+Last updated at 2025-06-19 02:28:49 CST
 
-Appreciation is the highest form of prayer, for it acknowledges the presence of good wherever you shine the light of your thankful thoughts.
+By oneself is evil done; by oneself is one defiled. By oneself is evil left undone; by oneself is one made pure.
 
-'As I am, so are they; as they are, so am I.' Comparing others with oneself, do not kill nor cause others to kill.
+Happiness can exist only in acceptance.
 
-The world is a book, and those who do not travel read only a page.
+Russia is a riddle wrapped in a mystery inside an enigma.
 
-Hell, there are no rules here-- we're trying to accomplish something.
+Discovery consists of seeing what everybody has seen and thinking what nobody else has thought.
 
-There is only one success - to be able to spend your life in your own way.
+The ultimate promise of technology is to make us master of a world that we command by the push of a button.
 
-You're never a loser until you quit trying.
+What we achieve inwardly will change outer reality.
 
-When you are content to be simply yourself and don't compare or compete, everybody will respect you.
+To go against the dominant thinking of your friends, of most of the people you see every day, is perhaps the most difficult act of heroism you can perform.
 
-Look back over the past, with its changing empires that rose and fell, and you can foresee the future, too.
+Happiness is the reward we get for living to the highest right we know.
 
-We can only be said to be alive in those moments when our hearts are conscious of our treasures.
+Golf is a game in which one endeavors to control a ball with implements ill adapted for the purpose.
 
-Your talent is God's gift to you. What you do with it is your gift back to God.
+I'm astounded by people who want to 'know' the universe when it's hard enough to find your way around Chinatown.
 
