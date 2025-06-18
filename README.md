@@ -1,22 +1,22 @@
-Last updated at 2025-06-18 18:21:41 CST
+Last updated at 2025-06-18 20:42:05 CST
 
-A good plan violently executed now is better than a perfect plan executed next week.
+The best preparation for tomorrow is doing your best today.
 
-Men of perverse opinion do not know the excellence of what is in their hands, till someone dash it from them.
+Men in general judge more from appearances than from reality. All men have eyes, but few have the gift of penetration.
 
-Never do things others can do and will do, if there are things others cannot do or will not do.
+No pessimist ever discovered the secrets of the stars, or sailed to an uncharted land, or opened a new heaven to the human spirit.
 
-When a thing is done, it's done. Don't look back. Look forward to your next objective.
+It is on our failures that we base a new and different and better success.
 
-If you must tell me your opinions, tell me what you believe in. I have plenty of doubts of my own.
+The best thing in every noble dream is the dreamer...
 
-Communications tools don't get socially interesting until they get technologically boring.
+You are the only person on earth who can use your ability.
 
-He who can curb his wrath as soon as it arises, as a timely antidote will check snake's venom that so quickly spreads, — such a monk gives up the here and the beyond, just as a serpent sheds its worn-out skin.
+With the new day comes new strength and new thoughts.
 
-Imagination rules the world.
+Ask yourself the secret of your success. Listen to your answer and practice it.
 
-The root of suffering is attachment.
+Well done is better than well said.
 
-Everything you are against weakens you. Everything you are for empowers you.
+The trouble with most people is that they think with their hopes or fears or wishes rather than with their minds.
 
