@@ -1,22 +1,22 @@
-Last updated at 2025-06-18 09:42:27 CST
+Last updated at 2025-06-18 11:16:32 CST
 
-When you dance, your purpose is not to get to a certain place on the floor. It's to enjoy each step along the way.
+Let go of your attachment to being right, and suddenly your mind is more open. You're able to benefit from the unique viewpoints of others, without being crippled by your own judgement.
 
-Life shrinks or expands in proportion to one's courage.
+Very little is needed to make a happy life; it is all within yourself, in your way of thinking.
 
-Minds are like parachutes. They only function when open.
+Life is like a sewer. What you get out of it depends on what you put into it.
 
-Character develops itself in the stream of life.
+Perseverance is a great element of success. If you only knock long enough and loud enough at the gate, you are sure to wake up somebody.
 
-Do not waste yourself in rejection, nor bark against the bad, but chant the beauty of the good.
+Friendship increases in visiting friends, but in visiting them seldom.
 
-Whoso loves, believes the impossible.
+Learn from yesterday, live for today, hope for tomorrow.
 
-The fact is, with every friendship you make, and every bond of trust you establish, you are shaping the image of America projected to the rest of the world. That is so important. So when you study abroad, you're actually helping to make America stronger.
+Nothing is softer or more flexible than water, yet nothing can resist it.
 
-It's important to know that words don't move mountains. Work, exacting work moves mountains.
+Do not wait; the time will never be 'just right.' Start where you stand, and work with whatever tools you may have at your command, and better tools will be found as you go along.
 
-There are two ways of spreading light: to be the candle or the mirror that reflects it.
+The ladder of success is never crowded at the top.
 
-People don't notice whether it's winter or summer when they're happy.
+He is a wise man who does not grieve for the things which he has not but rejoices for those which he has.
 
