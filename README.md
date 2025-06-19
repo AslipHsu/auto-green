@@ -1,22 +1,22 @@
-Last updated at 2025-06-19 14:30:06 CST
+Last updated at 2025-06-19 16:27:37 CST
 
-Never deny a diagnosis but do deny the negative verdict that may go with it.
+If you do not change direction, you may end up where you are heading.
 
-I will give you a definition of a proud man: he is a man who has neither vanity nor wisdom one filled with hatreds cannot be vain, neither can he be wise.
+If you smile when no one else is around, you really mean it.
 
-When people are like each other they tend to like each other.
+You can't cross the sea merely by standing and staring at the water.
 
-Love cures people - both the ones who give it and the ones who receive it.
+One should not hurt others if one loves oneself.
 
-By believing passionately in something that does not yet exist, we create it.
+Love yourself first and everything else falls into line. You really have to love yourself to get anything done in this world.
 
-A tree is known by its fruit; a man by his deeds. A good deed is never lost; he who sows courtesy reaps friendship, and he who plants kindness gathers love.
+A youth, when at home, should be filial and, abroad, respectful to his elders. He should be earnest and truthful. He should overflow in love to all and cultivate the friendship of the good. When he has time and opportunity, after the performance of these things, he should employ them in polite studies.
 
-Change is the law of life. And those who look only to the past or present are certain to miss the future.
+Pain and foolishness lead to great bliss and complete knowledge, for Eternal Wisdom created nothing under the sun in vain.
 
-Notice that the stiffest tree is most easily cracked, while the bamboo or willow survives by bending with the wind.
+No one has ever become poor by giving.
 
 Acquaintances we meet, enjoy, and can easily leave behind; but friendship grows deep roots.
 
-Appearances are often deceiving.
+There is more wisdom in your body than in your deepest philosophy.
 
