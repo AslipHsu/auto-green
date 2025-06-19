@@ -1,22 +1,22 @@
-Last updated at 2025-06-20 00:25:29 CST
+Last updated at 2025-06-20 02:27:29 CST
 
-I'd rather regret the things I've done than regret the things I haven't done.
+If you don't go after what you want, you'll never have it. If you don't ask, the answer is always no. If you don't step forward, you're always in the same place.
 
-Happiness does not come from doing easy work but from the afterglow of satisfaction that comes after the achievement of a difficult task that demanded our best.
+Setting an example is not the main means of influencing another, it is the only means.
 
-You might well remember that nothing can bring you success but yourself.
+It is fatal to enter any war without the will to win it.
 
-Wisdom, compassion, and courage are the three universally recognized moral qualities of men.
+Make the best use of what is in your power and take the rest as it happens.
 
-Obstacles are those frightful things you see when you take your eyes off your goal.
+The final wisdom of life requires not the annulment of incongruity but the achievement of serenity within and above it.
 
-One needs something to believe in, something for which one can have whole-hearted enthusiasm. One needs to feel that one's life has meaning, that one is needed in this world.
+Life is a learning experience, only if you learn.
 
-I never worry about action, but only inaction.
+If you want your life to be more rewarding, you have to change the way you think.
 
-Go to your bosom: Knock there and ask your heart what it doth know.
+Does wisdom perhaps appear on the earth as a raven which is inspired by the smell of carrion?
 
-What is new in the world? Nothing. What is old in the world? Nothing. Everything has always been and will always be.
+The longer we dwell on our misfortunes, the greater is their power to harm us.
 
-Truth, and goodness, and beauty are but different faces of the same all.
+Blessed are the hearts that can bend; they shall never be broken.
 
