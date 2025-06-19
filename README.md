@@ -1,22 +1,22 @@
-Last updated at 2025-06-19 12:28:02 CST
+Last updated at 2025-06-19 14:30:06 CST
 
-Do what you can. Want what you have. Be who you are.
+Never deny a diagnosis but do deny the negative verdict that may go with it.
 
-Time you enjoyed wasting was not wasted.
+I will give you a definition of a proud man: he is a man who has neither vanity nor wisdom one filled with hatreds cannot be vain, neither can he be wise.
 
-Happiness is not in the mere possession of money; it lies in the joy of achievement, in the thrill of creative effort.
+When people are like each other they tend to like each other.
 
-To get the full value of joy you must have someone to divide it with.
+Love cures people - both the ones who give it and the ones who receive it.
 
-The more light you allow within you, the brighter the world you live in will be.
+By believing passionately in something that does not yet exist, we create it.
 
-Human beings, who are almost unique in having the ability to learn from the experience of others, are also remarkable for their apparent disinclination to do so.
+A tree is known by its fruit; a man by his deeds. A good deed is never lost; he who sows courtesy reaps friendship, and he who plants kindness gathers love.
 
-The pessimist complains about the wind; the optimist expects it to change; the realist adjusts the sails.
+Change is the law of life. And those who look only to the past or present are certain to miss the future.
 
-It has long been an axiom of mine that the little things are infinitely the most important.
+Notice that the stiffest tree is most easily cracked, while the bamboo or willow survives by bending with the wind.
 
-For every failure, there's an alternative course of action. You just have to find it. When you come to a roadblock, take a detour.
+Acquaintances we meet, enjoy, and can easily leave behind; but friendship grows deep roots.
 
-I'm not interested in age. People who tell me their age are silly. You're as old as you feel.
+Appearances are often deceiving.
 
