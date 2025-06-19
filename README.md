@@ -1,22 +1,22 @@
-Last updated at 2025-06-19 06:18:52 CST
+Last updated at 2025-06-19 09:43:47 CST
 
-Love demands infinitely less than friendship.
+Not engaging in ignorance is wisdom.
 
-One's philosophy is not best expressed in words; it is expressed in the choices one makes... and the choices we make are ultimately our responsibility.
+A life spent making mistakes is not only more honorable, but more useful than a life spent doing nothing.
 
-Be kind whenever possible. It is always possible.
+If a man watches three football games in a row, he should be declared legally dead.
 
-Life is what happens while you are making other plans.
+The world cares very little about what a man or woman knows; it is what a man or woman is able to do that counts.
 
-The wise man does not lay up his own treasures. The more he gives to others, the more he has for his own.
+Coming together is a beginning; keeping together is progress; working together is success.
 
-There are no failures. Just experiences and your reactions to them.
+Happiness is a perfume you cannot pour on others without getting a few drops on yourself.
 
-Judge nothing, you will be happy. Forgive everything, you will be happier. Love everything, you will be happiest.
+By failing to prepare, you are preparing to fail.
 
-Remember that sometimes not getting what you want is a wonderful stroke of luck.
+To give oneself earnestly to the duties due to men, and, while respecting spiritual beings, to keep aloof from them, may be called wisdom.
 
-Take things as they are. Punch when you have to punch. Kick when you have to kick.
+Tragedy is a tool for the living to gain wisdom, not a guide by which to live.
 
-Rare as is true love, true friendship is rarer.
+Never idealize others. They will never live up to your expectations.
 
