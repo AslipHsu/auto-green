@@ -1,22 +1,22 @@
-Last updated at 2025-06-19 20:41:26 CST
+Last updated at 2025-06-19 22:18:57 CST
 
-So is cheerfulness, or a good temper, the more it is spent, the more remains.
+Nature takes away any faculty that is not used.
 
-Trust only movement. Life happens at the level of events, not of words. Trust movement.
+There are only two ways to live your life. One is as though nothing is a miracle. The other is as though everything is a miracle.
 
-The man who makes everything that leads to happiness depends upon himself, and not upon other men, has adopted the very best plan for living happily. This is the man of moderation, the man of manly character and of wisdom.
+Do not be embarrassed by your mistakes. Nothing can teach us better than our understanding of them. This is one of the best ways of self-education.
 
-What is new in the world? Nothing. What is old in the world? Nothing. Everything has always been and will always be.
+Much wisdom often goes with fewer words.
 
-The will to win, the desire to succeed, the urge to reach your full potential... these are the keys that will unlock the door to personal excellence.
+Love is like a friendship caught on fire. In the beginning a flame, very pretty, often hot and fierce, but still only light and flickering. As love grows older, our hearts mature and our love becomes as coals, deep-burning and unquenchable.
 
-He that respects himself is safe from others; he wears a coat of mail that none can pierce.
+One today is worth two tomorrows.
 
-Nature and books belong to the eyes that see them.
+The universe is made of stories, not atoms.
 
-The trouble with most people is that they think with their hopes or fears or wishes rather than with their minds.
+The doors of wisdom are never shut.
 
-Do you know what my favorite part of the game is? The opportunity to play.
+Meditation brings wisdom, lack of meditation leaves ignorance. Know well what leads you forward and what holds you back and choose the path that leads to wisdom.
 
-His lack of education is more than compensated for by his keenly developed moral bankruptcy.
+Wise men make more opportunities than they find.
 
