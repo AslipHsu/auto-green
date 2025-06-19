@@ -1,22 +1,22 @@
-Last updated at 2025-06-19 18:21:22 CST
+Last updated at 2025-06-19 20:41:26 CST
 
-Time stays long enough for anyone who will use it.
+So is cheerfulness, or a good temper, the more it is spent, the more remains.
 
-Who looks outside, dreams, who looks inside, awakes.
+Trust only movement. Life happens at the level of events, not of words. Trust movement.
 
-Talent is God-given; be humble. Fame is man-given; be thankful. Conceit is self-given; be careful.
+The man who makes everything that leads to happiness depends upon himself, and not upon other men, has adopted the very best plan for living happily. This is the man of moderation, the man of manly character and of wisdom.
 
-The pessimist complains about the wind; the optimist expects it to change; the realist adjusts the sails.
+What is new in the world? Nothing. What is old in the world? Nothing. Everything has always been and will always be.
 
-The winds and waves are always on the side of the ablest navigators.
+The will to win, the desire to succeed, the urge to reach your full potential... these are the keys that will unlock the door to personal excellence.
 
-Intuition will tell the thinking mind where to look next.
+He that respects himself is safe from others; he wears a coat of mail that none can pierce.
 
-Lord, make me an instrument of thy peace. Where there is hatred, let me sow love.
+Nature and books belong to the eyes that see them.
 
-From wonder into wonder existence opens.
+The trouble with most people is that they think with their hopes or fears or wishes rather than with their minds.
 
-The friendship that can cease has never been real.
+Do you know what my favorite part of the game is? The opportunity to play.
 
-Hope arouses, as nothing else can arouse, a passion for the possible.
+His lack of education is more than compensated for by his keenly developed moral bankruptcy.
 
