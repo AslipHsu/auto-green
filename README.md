@@ -1,22 +1,22 @@
-Last updated at 2025-06-19 11:17:19 CST
+Last updated at 2025-06-19 12:28:02 CST
 
-Adversity has the effect of eliciting talents, which in prosperous circumstances would have lain dormant.
+Do what you can. Want what you have. Be who you are.
 
-One fails forward toward success.
+Time you enjoyed wasting was not wasted.
 
-Creativity comes from trust. Trust your instincts. And never hope more than you work.
+Happiness is not in the mere possession of money; it lies in the joy of achievement, in the thrill of creative effort.
 
-If opportunity doesn't knock, build a door.
+To get the full value of joy you must have someone to divide it with.
 
-The thing that is disliked by me is also disliked by others. Since I dislike this thing, how can I inflict it on someone else?
+The more light you allow within you, the brighter the world you live in will be.
 
-Nothing strengthens authority so much as silence.
+Human beings, who are almost unique in having the ability to learn from the experience of others, are also remarkable for their apparent disinclination to do so.
 
-To lead people walk behind them.
+The pessimist complains about the wind; the optimist expects it to change; the realist adjusts the sails.
 
-Never mistake motion for action.
+It has long been an axiom of mine that the little things are infinitely the most important.
 
-The important thing is this: to be able at any moment to sacrifice what we are for what we could become.
+For every failure, there's an alternative course of action. You just have to find it. When you come to a roadblock, take a detour.
 
-Our greatest weakness lies in giving up. The most certain way to succeed is always to try just one more time.
+I'm not interested in age. People who tell me their age are silly. You're as old as you feel.
 
