@@ -1,22 +1,22 @@
-Last updated at 2025-06-19 09:43:47 CST
+Last updated at 2025-06-19 11:17:19 CST
 
-Not engaging in ignorance is wisdom.
+Adversity has the effect of eliciting talents, which in prosperous circumstances would have lain dormant.
 
-A life spent making mistakes is not only more honorable, but more useful than a life spent doing nothing.
+One fails forward toward success.
 
-If a man watches three football games in a row, he should be declared legally dead.
+Creativity comes from trust. Trust your instincts. And never hope more than you work.
 
-The world cares very little about what a man or woman knows; it is what a man or woman is able to do that counts.
+If opportunity doesn't knock, build a door.
 
-Coming together is a beginning; keeping together is progress; working together is success.
+The thing that is disliked by me is also disliked by others. Since I dislike this thing, how can I inflict it on someone else?
 
-Happiness is a perfume you cannot pour on others without getting a few drops on yourself.
+Nothing strengthens authority so much as silence.
 
-By failing to prepare, you are preparing to fail.
+To lead people walk behind them.
 
-To give oneself earnestly to the duties due to men, and, while respecting spiritual beings, to keep aloof from them, may be called wisdom.
+Never mistake motion for action.
 
-Tragedy is a tool for the living to gain wisdom, not a guide by which to live.
+The important thing is this: to be able at any moment to sacrifice what we are for what we could become.
 
-Never idealize others. They will never live up to your expectations.
+Our greatest weakness lies in giving up. The most certain way to succeed is always to try just one more time.
 
