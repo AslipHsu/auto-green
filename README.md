@@ -1,22 +1,22 @@
-Last updated at 2025-06-20 04:23:23 CST
+Last updated at 2025-06-20 06:18:41 CST
 
-Our shared values define us more than our differences. And acknowledging those shared values can see us through our challenges today if we have the wisdom to trust in them again.
+True friendship ought never to conceal what it thinks.
 
-Difficulties are meant to rouse, not discourage. The human spirit is to grow strong by conflict.
+Let me tell you the secret that has led me to my goal: my strength lies solely in my tenacity.
 
-To effectively communicate, we must realize that we are all different in the way we perceive the world and use this understanding as a guide to our communication with others.
+The greatest obstacle to discovery is not ignorance - it is the illusion of knowledge.
 
-Things do not change; we change.
+One of the most beautiful qualities of true friendship is to understand and to be understood.
 
-Men of perverse opinion do not know the excellence of what is in their hands, till someone dash it from them.
+We cannot solve our problems with the same thinking we used when we created them.
 
-If you're trying to achieve, there will be roadblocks. I've had them; everybody has had them. But obstacles don't have to stop you. If you run into a wall, don't turn around and give up. Figure out how to climb it, go through it, or work around it.
+The more sand that has escaped from the hourglass of our life, the clearer we should see through it.
 
-Failure will never overtake me if my determination to succeed is strong enough.
+All our knowledge begins with the senses, proceeds then to the understanding, and ends with reason. There is nothing higher than reason.
 
-I love wisdom. And you can never be great at anything unless you love it. Not be in love with it, but love the thing, admire the thing. And it seems that if you love the thing, and you don't just want to possess it, it will find you.
+Kindness is the golden chain by which society is bound together.
 
-Believe you can and you're halfway there.
+Good advice is always certain to be ignored, but that's no reason not to give it.
 
-Happiness is not in the mere possession of money; it lies in the joy of achievement, in the thrill of creative effort.
+A leader is best when people barely know he exists, when his work is done, his aim fulfilled, they will say: we did it ourselves.
 
