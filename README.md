@@ -1,22 +1,22 @@
-Last updated at 2025-06-20 02:27:29 CST
+Last updated at 2025-06-20 04:23:23 CST
 
-If you don't go after what you want, you'll never have it. If you don't ask, the answer is always no. If you don't step forward, you're always in the same place.
+Our shared values define us more than our differences. And acknowledging those shared values can see us through our challenges today if we have the wisdom to trust in them again.
 
-Setting an example is not the main means of influencing another, it is the only means.
+Difficulties are meant to rouse, not discourage. The human spirit is to grow strong by conflict.
 
-It is fatal to enter any war without the will to win it.
+To effectively communicate, we must realize that we are all different in the way we perceive the world and use this understanding as a guide to our communication with others.
 
-Make the best use of what is in your power and take the rest as it happens.
+Things do not change; we change.
 
-The final wisdom of life requires not the annulment of incongruity but the achievement of serenity within and above it.
+Men of perverse opinion do not know the excellence of what is in their hands, till someone dash it from them.
 
-Life is a learning experience, only if you learn.
+If you're trying to achieve, there will be roadblocks. I've had them; everybody has had them. But obstacles don't have to stop you. If you run into a wall, don't turn around and give up. Figure out how to climb it, go through it, or work around it.
 
-If you want your life to be more rewarding, you have to change the way you think.
+Failure will never overtake me if my determination to succeed is strong enough.
 
-Does wisdom perhaps appear on the earth as a raven which is inspired by the smell of carrion?
+I love wisdom. And you can never be great at anything unless you love it. Not be in love with it, but love the thing, admire the thing. And it seems that if you love the thing, and you don't just want to possess it, it will find you.
 
-The longer we dwell on our misfortunes, the greater is their power to harm us.
+Believe you can and you're halfway there.
 
-Blessed are the hearts that can bend; they shall never be broken.
+Happiness is not in the mere possession of money; it lies in the joy of achievement, in the thrill of creative effort.
 
