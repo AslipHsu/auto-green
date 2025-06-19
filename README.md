@@ -1,22 +1,22 @@
-Last updated at 2025-06-19 22:18:57 CST
+Last updated at 2025-06-20 00:25:29 CST
 
-Nature takes away any faculty that is not used.
+I'd rather regret the things I've done than regret the things I haven't done.
 
-There are only two ways to live your life. One is as though nothing is a miracle. The other is as though everything is a miracle.
+Happiness does not come from doing easy work but from the afterglow of satisfaction that comes after the achievement of a difficult task that demanded our best.
 
-Do not be embarrassed by your mistakes. Nothing can teach us better than our understanding of them. This is one of the best ways of self-education.
+You might well remember that nothing can bring you success but yourself.
 
-Much wisdom often goes with fewer words.
+Wisdom, compassion, and courage are the three universally recognized moral qualities of men.
 
-Love is like a friendship caught on fire. In the beginning a flame, very pretty, often hot and fierce, but still only light and flickering. As love grows older, our hearts mature and our love becomes as coals, deep-burning and unquenchable.
+Obstacles are those frightful things you see when you take your eyes off your goal.
 
-One today is worth two tomorrows.
+One needs something to believe in, something for which one can have whole-hearted enthusiasm. One needs to feel that one's life has meaning, that one is needed in this world.
 
-The universe is made of stories, not atoms.
+I never worry about action, but only inaction.
 
-The doors of wisdom are never shut.
+Go to your bosom: Knock there and ask your heart what it doth know.
 
-Meditation brings wisdom, lack of meditation leaves ignorance. Know well what leads you forward and what holds you back and choose the path that leads to wisdom.
+What is new in the world? Nothing. What is old in the world? Nothing. Everything has always been and will always be.
 
-Wise men make more opportunities than they find.
+Truth, and goodness, and beauty are but different faces of the same all.
 
