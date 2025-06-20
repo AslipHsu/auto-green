@@ -1,22 +1,22 @@
-Last updated at 2025-06-20 22:19:11 CST
+Last updated at 2025-06-21 00:25:14 CST
 
-The longer we dwell on our misfortunes, the greater is their power to harm us.
+Although there may be tragedy in your life, there's always a possibility to triumph. It doesn't matter who you are, where you come from. The ability to triumph begins with you. Always.
 
-Living at risk is jumping off the cliff and building your wings on the way down.
+It is the province of knowledge to speak, and it is the privilege of wisdom to listen.
 
-You are always free to change your mind and choose a different future, or a different past.
+Go put your creed into the deed. Nor speak with double tongue.
 
-We could never learn to be brave and patient if there were only joy in the world.
+The person who makes a success of living is the one who see his goal steadily and aims for it unswervingly. That is dedication.
 
-I am of the opinion that my life belongs to the community, and as long as I live it is my privilege to do for it whatever I can.
+What other people may find in poetry or art museums, I find in the flight of a good drive.
 
-We can only learn to love by loving.
+Most powerful is he who has himself in his own power.
 
-What we achieve inwardly will change outer reality.
+One secret of success in life is for a man to be ready for his opportunity when it comes.
 
-Tell me and I forget. Teach me and I remember. Involve me and I learn.
+Life is divided into the horrible and the miserable.
 
-His lack of education is more than compensated for by his keenly developed moral bankruptcy.
+Excellence, then, is a state concerned with choice, lying in a mean, relative to us, this being determined by reason and in the way in which the man of practical wisdom would determine it.
 
-Without this playing with fantasy no creative work has ever yet come to birth. The debt we owe to the play of the imagination is incalculable.
+Knowledge has three degrees: opinion, science, illumination. The means or instrument of the first is sense; of the second, dialectic; of the third, intuition.
 
