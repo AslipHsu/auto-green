@@ -1,22 +1,22 @@
-Last updated at 2025-06-20 20:41:11 CST
+Last updated at 2025-06-20 22:19:11 CST
 
-It is not fair to ask of others what you are unwilling to do yourself.
+The longer we dwell on our misfortunes, the greater is their power to harm us.
 
-Beauty is not in the face; beauty is a light in the heart.
+Living at risk is jumping off the cliff and building your wings on the way down.
 
-Neatness begets order; but from order to taste there is the same difference as from taste to genius, or from love to friendship.
+You are always free to change your mind and choose a different future, or a different past.
 
-I am always doing that which I cannot do, in order that I may learn how to do it.
+We could never learn to be brave and patient if there were only joy in the world.
 
-Imagination rules the world.
+I am of the opinion that my life belongs to the community, and as long as I live it is my privilege to do for it whatever I can.
 
-The greatest achievement of humanity is not its works of art, science, or technology, but the recognition of its own dysfunction.
+We can only learn to love by loving.
 
-A leader or a man of action in a crisis almost always acts subconsciously and then thinks of the reasons for his action.
+What we achieve inwardly will change outer reality.
 
-Applause is a receipt, not a bill.
+Tell me and I forget. Teach me and I remember. Involve me and I learn.
 
-You give before you get.
+His lack of education is more than compensated for by his keenly developed moral bankruptcy.
 
-Wishing to be friends is quick work, but friendship is a slow ripening fruit.
+Without this playing with fantasy no creative work has ever yet come to birth. The debt we owe to the play of the imagination is incalculable.
 
