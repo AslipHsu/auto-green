@@ -1,22 +1,22 @@
-Last updated at 2025-06-20 06:18:41 CST
+Last updated at 2025-06-20 09:42:49 CST
 
-True friendship ought never to conceal what it thinks.
+Most of our pocket wisdom is conceived for the use of mediocre people, to discourage them from ambitious attempts, and generally console them in their mediocrity.
 
-Let me tell you the secret that has led me to my goal: my strength lies solely in my tenacity.
+The right way is not always the popular and easy way. Standing for right when it is unpopular is a true test of moral character.
 
-The greatest obstacle to discovery is not ignorance - it is the illusion of knowledge.
+My religion consists of a humble admiration of the illimitable superior spirit who reveals himself in the slight details we are able to perceive with our frail and feeble mind.
 
-One of the most beautiful qualities of true friendship is to understand and to be understood.
+When we seek to discover the best in others, we somehow bring out the best in ourselves.
 
-We cannot solve our problems with the same thinking we used when we created them.
+Never reach out your hand unless you're willing to extend an arm.
 
-The more sand that has escaped from the hourglass of our life, the clearer we should see through it.
+All of our technology is completely unnecessary to a happy life.
 
-All our knowledge begins with the senses, proceeds then to the understanding, and ends with reason. There is nothing higher than reason.
+No yesterdays are ever wasted for those who give themselves to today.
 
-Kindness is the golden chain by which society is bound together.
+Happiness is found in doing, not merely possessing.
 
-Good advice is always certain to be ignored, but that's no reason not to give it.
+Do not follow where the path may lead. Go, instead, where there is no path and leave a trail.
 
-A leader is best when people barely know he exists, when his work is done, his aim fulfilled, they will say: we did it ourselves.
+Mistakes are the usual bridge between inexperience and wisdom.
 
