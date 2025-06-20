@@ -1,22 +1,22 @@
-Last updated at 2025-06-21 04:21:44 CST
+Last updated at 2025-06-21 06:18:37 CST
 
-All truths are easy to understand once they are discovered; the point is to discover them.
+Life's challenges are not supposed to paralyze you, they're supposed to help you discover who you are.
 
-He is a wise man who does not grieve for the things which he has not but rejoices for those which he has.
+When in doubt, tell the truth.
 
-Do not give your attention to what others do or fail to do; give it to what you do or fail to do.
+Speak low, if you speak love.
 
-Serious sport has nothing to do with fair play. It is bound up with hatred, jealousy, boastfulness, disregard of all rules and sadistic pleasure in witnessing violence. In other words, it is war minus the shooting.
+True silence is the rest of the mind; it is to the spirit what sleep is to the body, nourishment and refreshment.
 
-If you think you can, you can. And if you think you can't, you're right.
+We know what we are but know not what we may be.
 
-Winners never quit and quitters never win.
+We can change our lives. We can do, have, and be exactly what we wish.
 
-Motivation is the art of getting people to do what you want them to do because they want to do it.
+Intuition will tell the thinking mind where to look next.
 
-I gave my life to become the person I am right now. Was it worth it?
+Wisdom is the right use of knowledge. To know is not to be wise. Many men know a great deal and are all the greater fools for it. There is no fool so great a fool as a knowing fool. But to know how to use knowledge is to have wisdom.
 
-The language of friendship is not words but meanings.
+The inherent vice of capitalism is the unequal sharing of blessings; the inherent virtue of socialism is the equal sharing of miseries.
 
-Kind words can be short and easy to speak, but their echoes are truly endless.
+One may say the eternal mystery of the world is its comprehensibility.
 
