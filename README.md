@@ -1,22 +1,22 @@
-Last updated at 2025-06-20 18:21:10 CST
+Last updated at 2025-06-20 20:41:11 CST
 
-You are important enough to ask and you are blessed enough to receive back.
+It is not fair to ask of others what you are unwilling to do yourself.
 
-Do not mind anything that anyone tells you about anyone else. Judge everyone and everything for yourself.
+Beauty is not in the face; beauty is a light in the heart.
 
-People grow through experience if they meet life honestly and courageously. This is how character is built.
+Neatness begets order; but from order to taste there is the same difference as from taste to genius, or from love to friendship.
 
-I have always thought the actions of men the best interpreters of their thoughts.
+I am always doing that which I cannot do, in order that I may learn how to do it.
 
-So much technology, so little talent.
+Imagination rules the world.
 
-What wisdom can you find that is greater than kindness?
+The greatest achievement of humanity is not its works of art, science, or technology, but the recognition of its own dysfunction.
 
-Friendship, like love, is destroyed by long absence, though it may be increased by short intermissions.
+A leader or a man of action in a crisis almost always acts subconsciously and then thinks of the reasons for his action.
 
-I'd rather attempt to do something great and fail than to attempt to do nothing and succeed.
+Applause is a receipt, not a bill.
 
-Loss is nothing else but change, and change is Nature's delight.
+You give before you get.
 
-In three words I can sum up everything I've learned about life: it goes on.
+Wishing to be friends is quick work, but friendship is a slow ripening fruit.
 
