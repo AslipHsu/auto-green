@@ -1,22 +1,22 @@
-Last updated at 2025-06-20 12:27:16 CST
+Last updated at 2025-06-20 14:29:46 CST
 
-Meaning is not what you start with but what you end up with.
+The happiness that is genuinely satisfying is accompanied by the fullest exercise of our faculties and the fullest realization of the world in which we live.
 
-The world makes way for the man who knows where he is going.
+What makes Superman a hero is not that he has power, but that he has the wisdom and the maturity to use the power wisely. From an acting point of view, that's how I approached the part.
 
-What is a weed? A plant whose virtues have not yet been discovered.
+Friendship is Love without his wings!
 
-These days people seek knowledge, not wisdom. Knowledge is of the past; wisdom is of the future.
+You don't play against opponents, you play against the game of basketball.
 
-Study the past, if you would divine the future.
+Science gives us knowledge, but only philosophy can give us wisdom.
 
-The greatest good you can do for another is not just share your riches but reveal to them their own.
+Let yourself be silently drawn by the stronger pull of what you really love.
 
-The higher we are placed, the more humbly we should walk.
+Great indeed is the sublimity of the Creative, to which all beings owe their beginning, and which permeates all heaven.
 
-The universe is transformation; our life is what our thoughts make it.
+There is no fear for one whose mind is not filled with desires.
 
-The world is but a canvas to the imagination.
+To bring anything into your life, imagine that it's already there.
 
-God has given you one face, and you make yourself another.
+With pride, there are many curses. With humility, there come many blessings.
 
