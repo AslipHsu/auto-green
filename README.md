@@ -1,22 +1,22 @@
-Last updated at 2025-06-20 11:16:31 CST
+Last updated at 2025-06-20 12:27:16 CST
 
-It takes courage to grow up and become who you really are.
+Meaning is not what you start with but what you end up with.
 
-Tragedy is a tool for the living to gain wisdom, not a guide by which to live.
+The world makes way for the man who knows where he is going.
 
-There is a magnet in your heart that will attract true friends. That magnet is unselfishness, thinking of others first; when you learn to live for others, they will live for you.
+What is a weed? A plant whose virtues have not yet been discovered.
 
-If you do not express your own original ideas, if you do not listen to your own being, you will have betrayed yourself.
+These days people seek knowledge, not wisdom. Knowledge is of the past; wisdom is of the future.
 
-Most of the important things in the world have been accomplished by people who have kept on trying when there seemed to be no hope at all.
+Study the past, if you would divine the future.
 
-I always wanted to be somebody, but I should have been more specific.
+The greatest good you can do for another is not just share your riches but reveal to them their own.
 
-Twenty years from now you will be more disappointed by the things that you didn't do than by the ones you did do.
+The higher we are placed, the more humbly we should walk.
 
-The only real mistake is the one from which we learn nothing.
+The universe is transformation; our life is what our thoughts make it.
 
-Vanity can easily overtake wisdom. It usually overtakes common sense.
+The world is but a canvas to the imagination.
 
-Each man has his own vocation; his talent is his call. There is one direction in which all space is open to him.
+God has given you one face, and you make yourself another.
 
