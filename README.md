@@ -1,22 +1,22 @@
-Last updated at 2025-06-20 09:42:49 CST
+Last updated at 2025-06-20 11:16:31 CST
 
-Most of our pocket wisdom is conceived for the use of mediocre people, to discourage them from ambitious attempts, and generally console them in their mediocrity.
+It takes courage to grow up and become who you really are.
 
-The right way is not always the popular and easy way. Standing for right when it is unpopular is a true test of moral character.
+Tragedy is a tool for the living to gain wisdom, not a guide by which to live.
 
-My religion consists of a humble admiration of the illimitable superior spirit who reveals himself in the slight details we are able to perceive with our frail and feeble mind.
+There is a magnet in your heart that will attract true friends. That magnet is unselfishness, thinking of others first; when you learn to live for others, they will live for you.
 
-When we seek to discover the best in others, we somehow bring out the best in ourselves.
+If you do not express your own original ideas, if you do not listen to your own being, you will have betrayed yourself.
 
-Never reach out your hand unless you're willing to extend an arm.
+Most of the important things in the world have been accomplished by people who have kept on trying when there seemed to be no hope at all.
 
-All of our technology is completely unnecessary to a happy life.
+I always wanted to be somebody, but I should have been more specific.
 
-No yesterdays are ever wasted for those who give themselves to today.
+Twenty years from now you will be more disappointed by the things that you didn't do than by the ones you did do.
 
-Happiness is found in doing, not merely possessing.
+The only real mistake is the one from which we learn nothing.
 
-Do not follow where the path may lead. Go, instead, where there is no path and leave a trail.
+Vanity can easily overtake wisdom. It usually overtakes common sense.
 
-Mistakes are the usual bridge between inexperience and wisdom.
+Each man has his own vocation; his talent is his call. There is one direction in which all space is open to him.
 
