@@ -1,22 +1,22 @@
-Last updated at 2025-06-20 16:27:14 CST
+Last updated at 2025-06-20 18:21:10 CST
 
-God always takes the simplest way.
+You are important enough to ask and you are blessed enough to receive back.
 
-True friendship multiplies the good in life and divides its evils. Strive to have friends, for life without friends is like life on a desert island... to find one real friend in a lifetime is good fortune; to keep him is a blessing.
+Do not mind anything that anyone tells you about anyone else. Judge everyone and everything for yourself.
 
-If you were to offer a thirsty man all wisdom, you would not please him more than if you gave him a drink.
+People grow through experience if they meet life honestly and courageously. This is how character is built.
 
-In all things of nature there is something of the marvelous.
+I have always thought the actions of men the best interpreters of their thoughts.
 
-Trust is the lubrication that makes it possible for organizations to work.
+So much technology, so little talent.
 
-Wise men speak because they have something to say; Fools because they have to say something.
+What wisdom can you find that is greater than kindness?
 
-Be not afraid of greatness: some are born great, some achieve greatness, and some have greatness thrust upon them.
+Friendship, like love, is destroyed by long absence, though it may be increased by short intermissions.
 
-Strength does not come from physical capacity. It comes from an indomitable will.
+I'd rather attempt to do something great and fail than to attempt to do nothing and succeed.
 
-It is impossible to love and to be wise.
+Loss is nothing else but change, and change is Nature's delight.
 
-The universe is full of magical things, patiently waiting for our wits to grow sharper.
+In three words I can sum up everything I've learned about life: it goes on.
 
