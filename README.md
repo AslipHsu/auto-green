@@ -1,22 +1,22 @@
-Last updated at 2025-06-21 11:13:12 CST
+Last updated at 2025-06-21 12:25:02 CST
 
-One needs something to believe in, something for which one can have whole-hearted enthusiasm. One needs to feel that one's life has meaning, that one is needed in this world.
+Here is one quality that one must possess to win, and that is definiteness of purpose, the knowledge of what one wants, and a burning desire to possess it.
 
-Sooner or later, those who win are those who think they can.
+Your talent is God's gift to you. What you do with it is your gift back to God.
 
-I don't need a friend who changes when I change and who nods when I nod; my shadow does that much better.
+We should not judge people by their peak of excellence; but by the distance they have traveled from the point where they started.
 
-No act of kindness, no matter how small, is ever wasted.
+Once we accept our limits, we go beyond them.
 
-When I do good I feel good, when I do bad I feel bad, and that's my religion.
+Motivation is the art of getting people to do what you want them to do because they want to do it.
 
-We cannot do everything at once, but we can do something at once.
+All great men are gifted with intuition. They know without reasoning or analysis, what they need to know.
 
-The path to success is to take massive, determined action.
+With pride, there are many curses. With humility, there come many blessings.
 
-If you do not express your own original ideas, if you do not listen to your own being, you will have betrayed yourself.
+Beauty is not in the face; beauty is a light in the heart.
 
-Better be ignorant of a matter than half know it.
+He who lives in harmony with himself lives in harmony with the universe.
 
-Chance is always powerful. Let your hook be always cast; in the pool where you least expect it, there will be a fish.
+Wrinkles should merely indicate where smiles have been.
 
