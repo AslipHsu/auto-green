@@ -1,22 +1,22 @@
-Last updated at 2025-06-21 12:25:02 CST
+Last updated at 2025-06-21 14:27:23 CST
 
-Here is one quality that one must possess to win, and that is definiteness of purpose, the knowledge of what one wants, and a burning desire to possess it.
+The greatest mistake you can make in life is to be continually fearing you will make one.
 
-Your talent is God's gift to you. What you do with it is your gift back to God.
+True knowledge exists in knowing that you know nothing.
 
-We should not judge people by their peak of excellence; but by the distance they have traveled from the point where they started.
+Through meditation and by giving full attention to one thing at a time, we can learn to direct attention where we choose.
 
-Once we accept our limits, we go beyond them.
+Wisdom has its root in goodness, not goodness its root in wisdom.
 
-Motivation is the art of getting people to do what you want them to do because they want to do it.
+The extreme limit of wisdom, that's what the public calls madness.
 
-All great men are gifted with intuition. They know without reasoning or analysis, what they need to know.
+Love is the only force capable of transforming an enemy into a friend.
 
-With pride, there are many curses. With humility, there come many blessings.
+No party has a monopoly on wisdom. No democracy works without compromise.
 
-Beauty is not in the face; beauty is a light in the heart.
+The greatest obstacle to connecting with our joy is resentment.
 
-He who lives in harmony with himself lives in harmony with the universe.
+Do not turn back when you are just at the goal.
 
-Wrinkles should merely indicate where smiles have been.
+A friend is what the heart needs all the time.
 
