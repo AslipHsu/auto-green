@@ -1,22 +1,22 @@
-Last updated at 2025-06-21 20:37:28 CST
+Last updated at 2025-06-21 22:18:19 CST
 
-The greatest remedy for anger is delay.
+If you break your neck, if you have nothing to eat, if your house is on fire, then you got a problem. Everything else is inconvenience.
 
-You must do the things you think you cannot do.
+The best thing in every noble dream is the dreamer...
 
-The beginning of knowledge is the discovery of something we do not understand.
+The cause is hidden. The effect is visible to all.
 
-Just as a solid rock is not shaken by the storm, even so the wise are not affected by praise or blame.
+In rivers, the water that you touch is the last of what has passed and the first of that which comes; so with present time.
 
-Even youngish men can acquire wisdom as time goes by.
+All this worldly wisdom was once the unamiable heresy of some wise man.
 
-We all grow up. Hopefully, we get wiser. Age brings wisdom, and fatherhood changes one's life completely.
+Life's most persistent and urgent question is, 'What are you doing for others?'
 
-In times of change, learners inherit the earth, while the learned find themselves beautifully equipped to deal with a world that no longer exists.
+Reality is merely an illusion, albeit a very persistent one.
 
-In skating over thin ice our safety is in our speed.
+If you can't feed a hundred people, then feed just one.
 
-Love has no age, no limit; and no death.
+Freedom is the right to live as we wish.
 
-I am an optimist. It does not seem too much use being anything else.
+Friendship is held to be the severest test of character. It is easy, we think, to be loyal to a family and clan, whose blood is in your own veins.
 
