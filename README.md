@@ -1,22 +1,22 @@
-Last updated at 2025-06-21 22:18:19 CST
+Last updated at 2025-06-22 00:23:02 CST
 
-If you break your neck, if you have nothing to eat, if your house is on fire, then you got a problem. Everything else is inconvenience.
+Were here for a reason. I believe a bit of the reason is to throw little torches out to lead people through the dark.
 
-The best thing in every noble dream is the dreamer...
+The only way to prove that you're a good sport is to lose.
 
-The cause is hidden. The effect is visible to all.
+Nothing could be worse than the fear that one had given up too soon and left one unexpended effort that might have saved the world.
 
-In rivers, the water that you touch is the last of what has passed and the first of that which comes; so with present time.
+Life is movement-we breathe, we eat, we walk, we move!
 
-All this worldly wisdom was once the unamiable heresy of some wise man.
+We are either progressing or retrograding all the while. There is no such thing as remaining stationary in this life.
 
-Life's most persistent and urgent question is, 'What are you doing for others?'
+Excellence, then, is a state concerned with choice, lying in a mean, relative to us, this being determined by reason and in the way in which the man of practical wisdom would determine it.
 
-Reality is merely an illusion, albeit a very persistent one.
+Every adversity, every failure, every heartache carries with it the seed of an equal or greater benefit.
 
-If you can't feed a hundred people, then feed just one.
+First-rate people hire first-rate people; second-rate people hire third-rate people.
 
-Freedom is the right to live as we wish.
+To enjoy life, we must touch much of it lightly.
 
-Friendship is held to be the severest test of character. It is easy, we think, to be loyal to a family and clan, whose blood is in your own veins.
+It is more shameful to distrust our friends than to be deceived by them.
 
