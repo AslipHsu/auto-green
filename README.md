@@ -1,22 +1,22 @@
-Last updated at 2025-06-21 06:18:37 CST
+Last updated at 2025-06-21 09:40:56 CST
 
-Life's challenges are not supposed to paralyze you, they're supposed to help you discover who you are.
+Those that know, do. Those that understand, teach.
 
-When in doubt, tell the truth.
+The future is completely open, and we are writing it moment to moment.
 
-Speak low, if you speak love.
+Always be yourself, express yourself, have faith in yourself, do not go out and look for a successful personality and duplicate it.
 
-True silence is the rest of the mind; it is to the spirit what sleep is to the body, nourishment and refreshment.
+I'm a great believer in luck and I find the harder I work, the more I have of it.
 
-We know what we are but know not what we may be.
+The beginning of wisdom is found in doubting; by doubting we come to the question, and by seeking we may come upon the truth.
 
-We can change our lives. We can do, have, and be exactly what we wish.
+When you see a good person, think of becoming like him. When you see someone not so good, reflect on your own weak points.
 
-Intuition will tell the thinking mind where to look next.
+The way we communicate with others and with ourselves ultimately determines the quality of our lives.
 
-Wisdom is the right use of knowledge. To know is not to be wise. Many men know a great deal and are all the greater fools for it. There is no fool so great a fool as a knowing fool. But to know how to use knowledge is to have wisdom.
+People take different roads seeking fulfilment and happiness. Just because they're not on your road doesn't mean they've gotten lost.
 
-The inherent vice of capitalism is the unequal sharing of blessings; the inherent virtue of socialism is the equal sharing of miseries.
+The least movement is of importance to all nature. The entire ocean is affected by a pebble.
 
-One may say the eternal mystery of the world is its comprehensibility.
+The greatest minds are capable of the greatest vices as well as of the greatest virtues.
 
