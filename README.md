@@ -1,22 +1,22 @@
-Last updated at 2025-06-21 16:24:12 CST
+Last updated at 2025-06-21 18:20:27 CST
 
-Think like a man of action; act like a man of thought.
+Take time to deliberate, but when the time for action has arrived, stop thinking and go in.
 
-When I dare to be powerful, to use my strength in the service of my vision, then it becomes less and less important whether I am afraid.
+The heart has eyes which the brain knows nothing of.
 
-The right way is not always the popular and easy way. Standing for right when it is unpopular is a true test of moral character.
+If you are bitter, you are like a dry leaf that you can just squash, and you can get blown away by the wind. There is much more wisdom in forgiveness.
 
-Doing nothing is better than being busy doing nothing.
+Between saying and doing, many a pair of shoes is worn out.
 
-Friendship is the source of the greatest pleasures, and without friends even the most agreeable pursuits become tedious.
+The thoughts we choose to think are the tools we use to paint the canvas of our lives.
 
-The language of friendship is not words but meanings.
+The greatest minds are capable of the greatest vices as well as of the greatest virtues.
 
-When you see a good person, think of becoming like him. When you see someone not so good, reflect on your own weak points.
+God always takes the simplest way.
 
-To dare is to lose ones footing momentarily. To not dare is to lose oneself.
+Do all things with love.
 
-First-rate people hire first-rate people; second-rate people hire third-rate people.
+Applause is a receipt, not a bill.
 
-I don't need a friend who changes when I change and who nods when I nod; my shadow does that much better.
+Faith in oneself is the best and safest course.
 
