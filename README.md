@@ -1,22 +1,22 @@
-Last updated at 2025-06-22 00:23:02 CST
+Last updated at 2025-06-22 02:25:49 CST
 
-Were here for a reason. I believe a bit of the reason is to throw little torches out to lead people through the dark.
+There is never enough time to do everything, but there is always enough time to do the most important thing.
 
-The only way to prove that you're a good sport is to lose.
+The first step to getting the things you want out of life is this: decide what you want.
 
-Nothing could be worse than the fear that one had given up too soon and left one unexpended effort that might have saved the world.
+It is never too late to be what you might have been.
 
-Life is movement-we breathe, we eat, we walk, we move!
+If we are not fully ourselves, truly in the present moment, we miss everything.
 
-We are either progressing or retrograding all the while. There is no such thing as remaining stationary in this life.
+When you doubt your power, you give power to your doubt.
 
-Excellence, then, is a state concerned with choice, lying in a mean, relative to us, this being determined by reason and in the way in which the man of practical wisdom would determine it.
+The things that one most wants to do are the things that are probably most worth doing.
 
-Every adversity, every failure, every heartache carries with it the seed of an equal or greater benefit.
+You and I are all as much continuous with the physical universe as a wave is continuous with the ocean.
 
-First-rate people hire first-rate people; second-rate people hire third-rate people.
+Permanence, perseverance and persistence in spite of all obstacles, discouragements, and impossibilities: It is this, that in all things distinguishes the strong soul from the weak.
 
-To enjoy life, we must touch much of it lightly.
+The more man meditates upon good thoughts, the better will be his world and the world at large.
 
-It is more shameful to distrust our friends than to be deceived by them.
+Be Impeccable with Your Word. Speak with integrity. Say only what you mean. Avoid using the word to speak against yourself or to gossip about others. Use the power of your word in the direction of truth and love.
 
