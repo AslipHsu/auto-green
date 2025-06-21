@@ -1,22 +1,22 @@
-Last updated at 2025-06-22 04:19:54 CST
+Last updated at 2025-06-22 06:17:46 CST
 
-A poem begins in delight and ends in wisdom.
+We do not quit playing because we grow old, we grow old because we quit playing.
 
-I will love the light for it shows me the way, yet I will endure the darkness because it shows me the stars.
+There is a wisdom of the head, and a wisdom of the heart.
 
-I have never been hurt by anything I didn't say.
+Silence is the true friend that never betrays.
 
-Our greatest glory is not in never falling, but in rising every time we fall.
+Love is the only force capable of transforming an enemy into a friend.
 
-As we are liberated from our own fear, our presence automatically liberates others.
+Nothing could be worse than the fear that one had given up too soon and left one unexpended effort that might have saved the world.
 
-We are all inclined to judge ourselves by our ideals; others, by their acts.
+We can change our lives. We can do, have, and be exactly what we wish.
 
-Love is rarer than genius itself. And friendship is rarer than love.
+It is one of the blessings of old friends that you can afford to be stupid with them.
 
-A good plan violently executed now is better than a perfect plan executed next week.
+We are not animals. We are not a product of what has happened to us in our past. We have the power of choice.
 
-If one does not know to which port one is sailing, no wind is favorable.
+The greatest minds are capable of the greatest vices as well as of the greatest virtues.
 
-Wisdom has its root in goodness, not goodness its root in wisdom.
+The first duty of a human being is to assume the right functional relationship to society - more briefly, to find your real job, and do it.
 
