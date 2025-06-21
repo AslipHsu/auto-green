@@ -1,22 +1,22 @@
-Last updated at 2025-06-21 09:40:56 CST
+Last updated at 2025-06-21 11:13:12 CST
 
-Those that know, do. Those that understand, teach.
+One needs something to believe in, something for which one can have whole-hearted enthusiasm. One needs to feel that one's life has meaning, that one is needed in this world.
 
-The future is completely open, and we are writing it moment to moment.
+Sooner or later, those who win are those who think they can.
 
-Always be yourself, express yourself, have faith in yourself, do not go out and look for a successful personality and duplicate it.
+I don't need a friend who changes when I change and who nods when I nod; my shadow does that much better.
 
-I'm a great believer in luck and I find the harder I work, the more I have of it.
+No act of kindness, no matter how small, is ever wasted.
 
-The beginning of wisdom is found in doubting; by doubting we come to the question, and by seeking we may come upon the truth.
+When I do good I feel good, when I do bad I feel bad, and that's my religion.
 
-When you see a good person, think of becoming like him. When you see someone not so good, reflect on your own weak points.
+We cannot do everything at once, but we can do something at once.
 
-The way we communicate with others and with ourselves ultimately determines the quality of our lives.
+The path to success is to take massive, determined action.
 
-People take different roads seeking fulfilment and happiness. Just because they're not on your road doesn't mean they've gotten lost.
+If you do not express your own original ideas, if you do not listen to your own being, you will have betrayed yourself.
 
-The least movement is of importance to all nature. The entire ocean is affected by a pebble.
+Better be ignorant of a matter than half know it.
 
-The greatest minds are capable of the greatest vices as well as of the greatest virtues.
+Chance is always powerful. Let your hook be always cast; in the pool where you least expect it, there will be a fish.
 
