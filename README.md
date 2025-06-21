@@ -1,22 +1,22 @@
-Last updated at 2025-06-21 18:20:27 CST
+Last updated at 2025-06-21 20:37:28 CST
 
-Take time to deliberate, but when the time for action has arrived, stop thinking and go in.
+The greatest remedy for anger is delay.
 
-The heart has eyes which the brain knows nothing of.
+You must do the things you think you cannot do.
 
-If you are bitter, you are like a dry leaf that you can just squash, and you can get blown away by the wind. There is much more wisdom in forgiveness.
+The beginning of knowledge is the discovery of something we do not understand.
 
-Between saying and doing, many a pair of shoes is worn out.
+Just as a solid rock is not shaken by the storm, even so the wise are not affected by praise or blame.
 
-The thoughts we choose to think are the tools we use to paint the canvas of our lives.
+Even youngish men can acquire wisdom as time goes by.
 
-The greatest minds are capable of the greatest vices as well as of the greatest virtues.
+We all grow up. Hopefully, we get wiser. Age brings wisdom, and fatherhood changes one's life completely.
 
-God always takes the simplest way.
+In times of change, learners inherit the earth, while the learned find themselves beautifully equipped to deal with a world that no longer exists.
 
-Do all things with love.
+In skating over thin ice our safety is in our speed.
 
-Applause is a receipt, not a bill.
+Love has no age, no limit; and no death.
 
-Faith in oneself is the best and safest course.
+I am an optimist. It does not seem too much use being anything else.
 
