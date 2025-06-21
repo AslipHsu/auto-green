@@ -1,22 +1,22 @@
-Last updated at 2025-06-21 14:27:23 CST
+Last updated at 2025-06-21 16:24:12 CST
 
-The greatest mistake you can make in life is to be continually fearing you will make one.
+Think like a man of action; act like a man of thought.
 
-True knowledge exists in knowing that you know nothing.
+When I dare to be powerful, to use my strength in the service of my vision, then it becomes less and less important whether I am afraid.
 
-Through meditation and by giving full attention to one thing at a time, we can learn to direct attention where we choose.
+The right way is not always the popular and easy way. Standing for right when it is unpopular is a true test of moral character.
 
-Wisdom has its root in goodness, not goodness its root in wisdom.
+Doing nothing is better than being busy doing nothing.
 
-The extreme limit of wisdom, that's what the public calls madness.
+Friendship is the source of the greatest pleasures, and without friends even the most agreeable pursuits become tedious.
 
-Love is the only force capable of transforming an enemy into a friend.
+The language of friendship is not words but meanings.
 
-No party has a monopoly on wisdom. No democracy works without compromise.
+When you see a good person, think of becoming like him. When you see someone not so good, reflect on your own weak points.
 
-The greatest obstacle to connecting with our joy is resentment.
+To dare is to lose ones footing momentarily. To not dare is to lose oneself.
 
-Do not turn back when you are just at the goal.
+First-rate people hire first-rate people; second-rate people hire third-rate people.
 
-A friend is what the heart needs all the time.
+I don't need a friend who changes when I change and who nods when I nod; my shadow does that much better.
 
