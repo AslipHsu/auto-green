@@ -1,22 +1,22 @@
-Last updated at 2025-06-22 18:19:39 CST
+Last updated at 2025-06-22 20:37:16 CST
 
-There is no greater harm than that of time wasted.
+In romance, we feel the need to zoom in and expound on our partner's foibles in intimate detail; in friendship, we tend to do the opposite, avoiding confrontation through fear, lethargy or both.
 
-Our lives are a sum total of the choices we have made.
+No pessimist ever discovered the secrets of the stars, or sailed to an uncharted land, or opened a new heaven to the human spirit.
 
-A man is great by deeds, not by birth.
+He who conquers others is strong; He who conquers himself is mighty.
 
-We're born alone, we live alone, we die alone. Only through our love and friendship can we create the illusion for the moment that we're not alone.
+If you're walking down the right path and you're willing to keep walking, eventually you'll make progress.
 
-Follow effective action with quiet reflection. From the quiet reflection will come even more effective action.
+As an elephant in the battlefield withstands arrows shot from bows all around, even so shall I endure abuse.
 
-What lies behind us and what lies before us are tiny matters compared to what lies within us.
+There is only one way to happiness and that is to cease worrying about things which are beyond the power of our will.
 
-Success is not the key to happiness. Happiness is the key to success. If you love what you are doing, you will be successful.
+There are two kinds of failures: those who thought and never did, and those who did and never thought.
 
-It is not the possession of truth, but the success which attends the seeking after it, that enriches the seeker and brings happiness to him.
+It is common sense to take a method and try it. If it fails, admit it frankly and try another. But above all, try something.
 
-I will give you a definition of a proud man: he is a man who has neither vanity nor wisdom one filled with hatreds cannot be vain, neither can he be wise.
+Do something wonderful, people may imitate it.
 
-Self-trust is the first secret of success.
+If we are not fully ourselves, truly in the present moment, we miss everything.
 
