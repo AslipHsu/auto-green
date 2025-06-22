@@ -1,22 +1,22 @@
-Last updated at 2025-06-23 02:26:23 CST
+Last updated at 2025-06-23 04:20:28 CST
 
-The greatest minds are capable of the greatest vices as well as of the greatest virtues.
+Chance is always powerful. Let your hook be always cast; in the pool where you least expect it, there will be a fish.
 
-The free man is he who does not fear to go to the end of his thought.
+Keep your face always toward the sunshine - and shadows will fall behind you.
 
-A successful person is one who can lay a firm foundation with the bricks that others throw at him or her.
+If I were two-faced, would I be wearing this one?
 
-To be tested is good. The challenged life may be the best therapist.
+It seemed the world was divided into good and bad people. The good ones slept better... while the bad ones seemed to enjoy the waking hours much more.
 
-One who gains strength by overcoming obstacles possesses the only strength which can overcome adversity.
+Decision is a risk rooted in the courage of being free.
 
-Programs must be written for people to read, and only incidentally for machines to execute.
+I want my friend to miss me as long as I miss him.
 
-Nobody will believe in you unless you believe in yourself.
+Action may not always bring happiness; but there is no happiness without action.
 
-We don't know a millionth of one percent about anything.
+Setting an example is not the main means of influencing another, it is the only means.
 
-A friend is one who knows you and loves you just the same.
+If you want to go east, don't go west.
 
-Without some goals and some efforts to reach it, no man can live.
+The final wisdom of life requires not the annulment of incongruity but the achievement of serenity within and above it.
 
