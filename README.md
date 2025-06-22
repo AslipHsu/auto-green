@@ -1,22 +1,22 @@
-Last updated at 2025-06-23 04:20:28 CST
+Last updated at 2025-06-23 06:18:20 CST
 
-Chance is always powerful. Let your hook be always cast; in the pool where you least expect it, there will be a fish.
+The moment one gives close attention to anything, it becomes a mysterious, awesome, indescribably magnificent world in itself.
 
-Keep your face always toward the sunshine - and shadows will fall behind you.
+Feeling and longing are the motive forces behind all human endeavor and human creations.
 
-If I were two-faced, would I be wearing this one?
+There is nothing so useless as doing efficiently that which should not be done at all.
 
-It seemed the world was divided into good and bad people. The good ones slept better... while the bad ones seemed to enjoy the waking hours much more.
+Fans don't boo nobodies.
 
-Decision is a risk rooted in the courage of being free.
+Quality is not an act; it is a habit.
 
-I want my friend to miss me as long as I miss him.
+If one is lucky, a solitary fantasy can totally transform one million realities.
 
-Action may not always bring happiness; but there is no happiness without action.
+There is no charm equal to tenderness of heart.
 
-Setting an example is not the main means of influencing another, it is the only means.
+With the realization of one's own potential and self-confidence in one's ability, one can build a better world.
 
-If you want to go east, don't go west.
+In friendship as well as love, ignorance very often contributes more to our happiness than knowledge.
 
-The final wisdom of life requires not the annulment of incongruity but the achievement of serenity within and above it.
+Fine words and an insinuating appearance are seldom associated with true virtue
 
