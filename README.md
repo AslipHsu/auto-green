@@ -1,22 +1,22 @@
-Last updated at 2025-06-22 12:30:41 CST
+Last updated at 2025-06-22 14:27:43 CST
 
-I have often regretted my speech, never my silence.
+Excellence, then, is a state concerned with choice, lying in a mean, relative to us, this being determined by reason and in the way in which the man of practical wisdom would determine it.
 
-Coming together is a beginning; keeping together is progress; working together is success.
+Conflict is the gadfly of thought. It stirs us to observation and memory. It instigates to invention. It shocks us out of sheeplike passivity, and sets us at noting and contriving.
 
-Science and technology revolutionize our lives, but memory, tradition and myth frame our response.
+If you have knowledge, let others light their candles in it.
 
-Every man takes the limits of his own field of vision for the limits of the world.
+He who wishes to secure the good of others, has already secured his own.
 
-It is impossible for a man to learn what he thinks he already knows.
+The great myth of our times is that technology is communication.
 
-Work for something because it is good, not just because it stands a chance to succeed.
+It is not so much our friends' help that helps us, as the confidence of their help.
 
-There is no way to happiness, happiness is the way.
+In rivers, the water that you touch is the last of what has passed and the first of that which comes; so with present time.
+
+Aerodynamically the bumblebee shouldn't be able to fly, but the bumblebee doesn't know that, so it goes on flying anyway.
 
 Technology is the campfire around which we tell our stories.
 
-Success in business requires training and discipline and hard work. But if you're not frightened by these things, the opportunities are just as great today as they ever were.
-
-The mark of your ignorance is the depth of your belief in injustice and tragedy. What the caterpillar calls the end of the world, the Master calls the butterfly.
+He who fears being conquered is sure of defeat.
 
