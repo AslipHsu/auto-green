@@ -1,22 +1,22 @@
-Last updated at 2025-06-22 09:51:02 CST
+Last updated at 2025-06-22 11:25:30 CST
 
-Life is so constructed that an event does not, cannot, will not, match the expectation.
+Constant kindness can accomplish much. As the sun makes ice melt, kindness causes misunderstanding, mistrust, and hostility to evaporate.
 
-Set your goals high, and don't stop till you get there.
+When you discover your mission, you will feel its demand. It will fill you with enthusiasm and a burning desire to get to work on it.
 
-When one tugs at a single thing in nature, he finds it attached to the rest of the world.
+Ceasing to do evil, Cultivating the good, Purifying the heart: This is the teaching of the Buddhas.
 
-The thoughts we choose to think are the tools we use to paint the canvas of our lives.
+If you talk to a man in a language he understands, that goes to his head. If you talk to him in his language, that goes to his heart.
 
-To know oneself is to study oneself in action with another person.
+Two of man's basic needs are to love and to share. Both of these needs are satisfied in greater or lesser degree by friendship.
 
-I am a firm believer in the people. If given the truth, they can be depended upon to meet any national crisis. The great point is to bring them the real facts.
+When you reach the end of your rope, tie a knot in it and hang on.
 
-Friendship marks a life even more deeply than love. Love risks degenerating into obsession, friendship is never anything but sharing.
+If you do not change direction, you may end up where you are heading.
 
-Friendship is like money, easier made than kept.
+Our distrust is very expensive.
 
-I am like a falling star who has finally found her place next to another in a lovely constellation, where we will sparkle in the heavens forever.
+It does not matter how slowly you go as long as you do not stop.
 
-Ethical axioms are found and tested not very differently from the axioms of science. Truth is what stands the test of experience.
+Difficulties increase the nearer we get to the goal.
 
