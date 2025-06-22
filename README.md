@@ -1,22 +1,22 @@
-Last updated at 2025-06-22 16:24:33 CST
+Last updated at 2025-06-22 18:19:39 CST
 
-Wisdom is a kind of knowledge. It is knowledge of the nature, career, and consequences of human values.
+There is no greater harm than that of time wasted.
 
-Success is where preparation and opportunity meet.
+Our lives are a sum total of the choices we have made.
 
-For beautiful eyes, look for the good in others; for beautiful lips, speak only words of kindness; and for poise, walk with the knowledge that you are never alone.
+A man is great by deeds, not by birth.
 
-But at any rate, the point is that God is what nobody admits to being, and everybody really is.
+We're born alone, we live alone, we die alone. Only through our love and friendship can we create the illusion for the moment that we're not alone.
 
-The greatest gift of life is friendship, and I have received it.
+Follow effective action with quiet reflection. From the quiet reflection will come even more effective action.
 
-All truths are easy to understand once they are discovered; the point is to discover them.
+What lies behind us and what lies before us are tiny matters compared to what lies within us.
 
-If you spend too much time thinking about a thing, you'll never get it done.
+Success is not the key to happiness. Happiness is the key to success. If you love what you are doing, you will be successful.
 
-Love is a serious mental disease.
+It is not the possession of truth, but the success which attends the seeking after it, that enriches the seeker and brings happiness to him.
 
-Real magic in relationships means an absence of judgement of others.
+I will give you a definition of a proud man: he is a man who has neither vanity nor wisdom one filled with hatreds cannot be vain, neither can he be wise.
 
-No act of kindness, no matter how small, is ever wasted.
+Self-trust is the first secret of success.
 
