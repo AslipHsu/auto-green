@@ -1,22 +1,22 @@
-Last updated at 2025-06-22 20:37:16 CST
+Last updated at 2025-06-22 22:17:11 CST
 
-In romance, we feel the need to zoom in and expound on our partner's foibles in intimate detail; in friendship, we tend to do the opposite, avoiding confrontation through fear, lethargy or both.
+There is no duty we so underrate as the duty of being happy. By being happy we sow anonymous benefits upon the world.
 
-No pessimist ever discovered the secrets of the stars, or sailed to an uncharted land, or opened a new heaven to the human spirit.
+Give whatever you are doing and whoever you are with the gift of your attention.
 
-He who conquers others is strong; He who conquers himself is mighty.
+Allow the world to live as it chooses, and allow yourself to live as you choose.
 
-If you're walking down the right path and you're willing to keep walking, eventually you'll make progress.
+Before you can inspire with emotion, you must be swamped with it yourself. Before you can move their tears, your own must flow. To convince them, you must yourself believe.
 
-As an elephant in the battlefield withstands arrows shot from bows all around, even so shall I endure abuse.
+How wonderful that we have met with a paradox. Now we have some hope of making progress.
 
-There is only one way to happiness and that is to cease worrying about things which are beyond the power of our will.
+Let yourself be silently drawn by the stronger pull of what you really love.
 
-There are two kinds of failures: those who thought and never did, and those who did and never thought.
+The Superior Man is aware of Righteousness, the inferior man is aware of advantage.
 
-It is common sense to take a method and try it. If it fails, admit it frankly and try another. But above all, try something.
+Yeah, we all shine on, like the moon, and the stars, and the sun.
 
-Do something wonderful, people may imitate it.
+Life is a succession of lessons, which must be lived to be understood.
 
-If we are not fully ourselves, truly in the present moment, we miss everything.
+I have no special talent. I am only passionately curious.
 
