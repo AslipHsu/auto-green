@@ -1,22 +1,22 @@
-Last updated at 2025-06-22 11:25:30 CST
+Last updated at 2025-06-22 12:30:41 CST
 
-Constant kindness can accomplish much. As the sun makes ice melt, kindness causes misunderstanding, mistrust, and hostility to evaporate.
+I have often regretted my speech, never my silence.
 
-When you discover your mission, you will feel its demand. It will fill you with enthusiasm and a burning desire to get to work on it.
+Coming together is a beginning; keeping together is progress; working together is success.
 
-Ceasing to do evil, Cultivating the good, Purifying the heart: This is the teaching of the Buddhas.
+Science and technology revolutionize our lives, but memory, tradition and myth frame our response.
 
-If you talk to a man in a language he understands, that goes to his head. If you talk to him in his language, that goes to his heart.
+Every man takes the limits of his own field of vision for the limits of the world.
 
-Two of man's basic needs are to love and to share. Both of these needs are satisfied in greater or lesser degree by friendship.
+It is impossible for a man to learn what he thinks he already knows.
 
-When you reach the end of your rope, tie a knot in it and hang on.
+Work for something because it is good, not just because it stands a chance to succeed.
 
-If you do not change direction, you may end up where you are heading.
+There is no way to happiness, happiness is the way.
 
-Our distrust is very expensive.
+Technology is the campfire around which we tell our stories.
 
-It does not matter how slowly you go as long as you do not stop.
+Success in business requires training and discipline and hard work. But if you're not frightened by these things, the opportunities are just as great today as they ever were.
 
-Difficulties increase the nearer we get to the goal.
+The mark of your ignorance is the depth of your belief in injustice and tragedy. What the caterpillar calls the end of the world, the Master calls the butterfly.
 
