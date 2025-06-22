@@ -1,22 +1,22 @@
-Last updated at 2025-06-22 06:17:46 CST
+Last updated at 2025-06-22 09:51:02 CST
 
-We do not quit playing because we grow old, we grow old because we quit playing.
+Life is so constructed that an event does not, cannot, will not, match the expectation.
 
-There is a wisdom of the head, and a wisdom of the heart.
+Set your goals high, and don't stop till you get there.
 
-Silence is the true friend that never betrays.
+When one tugs at a single thing in nature, he finds it attached to the rest of the world.
 
-Love is the only force capable of transforming an enemy into a friend.
+The thoughts we choose to think are the tools we use to paint the canvas of our lives.
 
-Nothing could be worse than the fear that one had given up too soon and left one unexpended effort that might have saved the world.
+To know oneself is to study oneself in action with another person.
 
-We can change our lives. We can do, have, and be exactly what we wish.
+I am a firm believer in the people. If given the truth, they can be depended upon to meet any national crisis. The great point is to bring them the real facts.
 
-It is one of the blessings of old friends that you can afford to be stupid with them.
+Friendship marks a life even more deeply than love. Love risks degenerating into obsession, friendship is never anything but sharing.
 
-We are not animals. We are not a product of what has happened to us in our past. We have the power of choice.
+Friendship is like money, easier made than kept.
 
-The greatest minds are capable of the greatest vices as well as of the greatest virtues.
+I am like a falling star who has finally found her place next to another in a lovely constellation, where we will sparkle in the heavens forever.
 
-The first duty of a human being is to assume the right functional relationship to society - more briefly, to find your real job, and do it.
+Ethical axioms are found and tested not very differently from the axioms of science. Truth is what stands the test of experience.
 
