@@ -1,22 +1,22 @@
-Last updated at 2025-06-22 22:17:11 CST
+Last updated at 2025-06-23 00:23:16 CST
 
-There is no duty we so underrate as the duty of being happy. By being happy we sow anonymous benefits upon the world.
+The greater part of human pain is unnecessary. It is self-created as long as the unobserved mind runs your life.
 
-Give whatever you are doing and whoever you are with the gift of your attention.
+The grand essentials of happiness are: something to do, something to love, and something to hope for.
 
-Allow the world to live as it chooses, and allow yourself to live as you choose.
+A monarchy conducted with infinite wisdom and infinite benevolence is the most perfect of all possible governments.
 
-Before you can inspire with emotion, you must be swamped with it yourself. Before you can move their tears, your own must flow. To convince them, you must yourself believe.
+The awareness of our own strength makes us modest.
 
-How wonderful that we have met with a paradox. Now we have some hope of making progress.
+Good judgment comes from experience, and a lot of that comes from bad judgment.
 
-Let yourself be silently drawn by the stronger pull of what you really love.
+As you walk in God's divine wisdom, you will surely begin to see a greater measure of victory and good success in your life.
 
-The Superior Man is aware of Righteousness, the inferior man is aware of advantage.
+A subtle thought that is in error may yet give rise to fruitful inquiry that can establish truths of great value.
 
-Yeah, we all shine on, like the moon, and the stars, and the sun.
+One's friends are that part of the human race with which one can be human.
 
-Life is a succession of lessons, which must be lived to be understood.
+It has long been an axiom of mine that the little things are infinitely the most important.
 
-I have no special talent. I am only passionately curious.
+Imagination is not a talent of some men but is the health of every man.
 
