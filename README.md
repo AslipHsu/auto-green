@@ -1,22 +1,22 @@
-Last updated at 2025-06-23 00:23:16 CST
+Last updated at 2025-06-23 02:26:23 CST
 
-The greater part of human pain is unnecessary. It is self-created as long as the unobserved mind runs your life.
+The greatest minds are capable of the greatest vices as well as of the greatest virtues.
 
-The grand essentials of happiness are: something to do, something to love, and something to hope for.
+The free man is he who does not fear to go to the end of his thought.
 
-A monarchy conducted with infinite wisdom and infinite benevolence is the most perfect of all possible governments.
+A successful person is one who can lay a firm foundation with the bricks that others throw at him or her.
 
-The awareness of our own strength makes us modest.
+To be tested is good. The challenged life may be the best therapist.
 
-Good judgment comes from experience, and a lot of that comes from bad judgment.
+One who gains strength by overcoming obstacles possesses the only strength which can overcome adversity.
 
-As you walk in God's divine wisdom, you will surely begin to see a greater measure of victory and good success in your life.
+Programs must be written for people to read, and only incidentally for machines to execute.
 
-A subtle thought that is in error may yet give rise to fruitful inquiry that can establish truths of great value.
+Nobody will believe in you unless you believe in yourself.
 
-One's friends are that part of the human race with which one can be human.
+We don't know a millionth of one percent about anything.
 
-It has long been an axiom of mine that the little things are infinitely the most important.
+A friend is one who knows you and loves you just the same.
 
-Imagination is not a talent of some men but is the health of every man.
+Without some goals and some efforts to reach it, no man can live.
 
