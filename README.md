@@ -1,22 +1,22 @@
-Last updated at 2025-06-23 12:34:05 CST
+Last updated at 2025-06-23 14:31:54 CST
 
-Read as you taste fruit or savor wine, or enjoy friendship, love or life.
+Be less curious about people and more curious about ideas.
 
-Friendship is a very taxing and arduous form of leisure activity.
+Fears are nothing more than a state of mind.
 
-Perseverance is a great element of success. If you only knock long enough and loud enough at the gate, you are sure to wake up somebody.
+Take time to deliberate, but when the time for action has arrived, stop thinking and go in.
 
-Life is about timing.
+It is time to remember that old wisdom our soldiers will never forget: that whether we are black or brown or white, we all bleed the same red blood of patriots, we all enjoy the same glorious freedoms, and we all salute the same great American Flag.
 
-Respect should be earned by actions, and not acquired by years.
+Wisdom is the supreme part of happiness.
 
-To see things in the seed, that is genius.
+The opportunity for brotherhood presents itself every time you meet a human being.
 
-We are what we repeatedly do. Excellence, then, is not an act, but a habit.
+A friend in power is a friend lost.
 
-There is no passion to be found playing small - in settling for a life that is less than the one you are capable of living.
+Happiness is found in doing, not merely possessing.
 
-In the middle of every difficulty lies opportunity.
+If you can't explain it simply, you don't understand it well enough.
 
-To climb steep hills requires a slow pace at first.
+Radiate boundless love towards the entire world — above, below, and across — unhindered, without ill will, without enmity.
 
