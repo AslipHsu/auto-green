@@ -1,22 +1,22 @@
-Last updated at 2025-06-23 09:49:25 CST
+Last updated at 2025-06-23 11:26:08 CST
 
-Life is a learning experience, only if you learn.
+The amount of happiness that you have depends on the amount of freedom you have in your heart.
 
-Believe you can and you're halfway there.
+What worries you masters you.
 
-One's friends are that part of the human race with which one can be human.
+Quality means doing it right when no one is looking.
 
-He who knows himself is enlightened.
+Well begun is half done.
 
-Love yourself first and everything else falls into line. You really have to love yourself to get anything done in this world.
+Most folks are as happy as they make up their minds to be.
 
-Technology frightens me to death. It's designed by engineers to impress other engineers. And they always come with instruction booklets that are written by engineers for other engineers — which is why almost no technology ever works.
+I will give you a definition of a proud man: he is a man who has neither vanity nor wisdom one filled with hatreds cannot be vain, neither can he be wise.
 
-May all beings have happy minds.
+People may doubt what you say, but they will believe what you do.
 
-Being entirely honest with oneself is a good exercise.
+Life is the only real counselor; wisdom unfiltered through personal experience does not become a part of the moral tissue.
 
-Without freedom of thought, there can be no such thing as wisdom - and no such thing as public liberty without freedom of speech.
+A friend is a gift you give yourself.
 
-Criticism is something you can easily avoid by saying nothing, doing nothing, and being nothing.
+The only journey is the one within.
 
