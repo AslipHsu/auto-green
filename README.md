@@ -1,22 +1,22 @@
-Last updated at 2025-06-23 14:31:54 CST
+Last updated at 2025-06-23 16:29:04 CST
 
-Be less curious about people and more curious about ideas.
+One of the advantages of being disorderly is that one is constantly making exciting discoveries.
 
-Fears are nothing more than a state of mind.
+Hell, there are no rules here-- we're trying to accomplish something.
 
-Take time to deliberate, but when the time for action has arrived, stop thinking and go in.
+Today you are you! That is truer than true! There is no one alive who is you-er than you!
 
-It is time to remember that old wisdom our soldiers will never forget: that whether we are black or brown or white, we all bleed the same red blood of patriots, we all enjoy the same glorious freedoms, and we all salute the same great American Flag.
+One machine can do the work of fifty ordinary men. No machine can do the work of one extraordinary man.
 
-Wisdom is the supreme part of happiness.
+Simply put, you believer that things or people make you unhappy, but this is not accurate. You make yourself unhappy.
 
-The opportunity for brotherhood presents itself every time you meet a human being.
+Nobody made a greater mistake than he who did nothing because he could do only a little.
 
-A friend in power is a friend lost.
+A little more persistence, a little more effort, and what seemed hopeless failure may turn to glorious success.
 
-Happiness is found in doing, not merely possessing.
+The best cure for the body is a quiet mind.
 
-If you can't explain it simply, you don't understand it well enough.
+A rolling stone gathers no moss.
 
-Radiate boundless love towards the entire world — above, below, and across — unhindered, without ill will, without enmity.
+The final wisdom of life requires not the annulment of incongruity but the achievement of serenity within and above it.
 
