@@ -1,22 +1,22 @@
-Last updated at 2025-06-24 00:26:42 CST
+Last updated at 2025-06-24 02:29:09 CST
 
-Keep silence for the most part, and speak only when you must, and then briefly.
-
-Go for it now. The future is promised to no one.
-
-All children are artists. The problem is how to remain an artist once he grows up.
-
-The human spirit must prevail over technology.
-
-There is no retirement for an artist, it's your way of living so there is no end to it.
+You've got to go out on a limb sometimes because that's where the fruit is.
 
 What happens is not as important as how you react to what happens.
 
-The highest stage in moral culture at which we can arrive is when we recognize that we ought to control our thoughts.
+Love is the wisdom of the fool and the folly of the wise.
 
-A friend to all is a friend to none.
+Know from the rivers in clefts and in crevices: those in small channels flow noisily, the great flow silent. Whatever's not full makes noise. Whatever is full is quiet.
 
-With pride, there are many curses. With humility, there come many blessings.
+The possibilities are numerous once we decide to act and not react.
 
-All difficult things have their origin in that which is easy, and great things in that which is small.
+Men in general judge more from appearances than from reality. All men have eyes, but few have the gift of penetration.
+
+Ability will never catch up with the demand for it.
+
+A day of worry is more exhausting than a day of work.
+
+If you're going through hell, keep going.
+
+It may happen sometimes that a long debate becomes the cause of a longer friendship. Commonly, those who dispute with one another at last agree.
 
