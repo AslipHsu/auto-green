@@ -1,22 +1,22 @@
-Last updated at 2025-06-23 22:20:43 CST
+Last updated at 2025-06-24 00:26:42 CST
 
-Difficulties are things that show a person what they are.
+Keep silence for the most part, and speak only when you must, and then briefly.
 
-I have never been hurt by anything I didn't say.
+Go for it now. The future is promised to no one.
 
-People usually compare the computer to the head of the human being. I would say that hardware is the bone of the head, the skull. The semiconductor is the brain within the head. The software is the wisdom. And data is the knowledge.
+All children are artists. The problem is how to remain an artist once he grows up.
 
-To exist is to change, to change is to mature, to mature is to go on creating oneself endlessly.
+The human spirit must prevail over technology.
 
-Your friends will know you better in the first minute you meet than your acquaintances will know you in a thousand years.
+There is no retirement for an artist, it's your way of living so there is no end to it.
 
-Through pride we are ever deceiving ourselves. But deep down below the surface of the average conscience a still, small voice says to us, something is out of tune.
+What happens is not as important as how you react to what happens.
 
-Along with success comes a reputation for wisdom.
+The highest stage in moral culture at which we can arrive is when we recognize that we ought to control our thoughts.
 
-Until you value yourself, you won't value your time. Until you value your time, you won't do anything with it.
+A friend to all is a friend to none.
 
-Truth is powerful and it prevails.
+With pride, there are many curses. With humility, there come many blessings.
 
-Life is a succession of lessons, which must be lived to be understood.
+All difficult things have their origin in that which is easy, and great things in that which is small.
 
