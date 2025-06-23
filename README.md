@@ -1,22 +1,22 @@
-Last updated at 2025-06-23 18:22:59 CST
+Last updated at 2025-06-23 20:42:41 CST
 
-Our doubts are traitors and make us lose the good we often might win, by fearing to attempt.
+Always remember that you are absolutely unique. Just like everyone else.
 
-The greater part of human pain is unnecessary. It is self-created as long as the unobserved mind runs your life.
+What is necessary to change a person is to change his awareness of himself.
 
-Joy is what happens to us when we allow ourselves to recognize how good things really are.
+Change your life today. Don't gamble on the future, act now, without delay.
 
-Be sure you put your feet in the right place, then stand firm.
+Yesterday's home runs don't win today's games.
 
-The final wisdom of life requires not the annulment of incongruity but the achievement of serenity within and above it.
+A person who never made a mistake never tried anything new.
 
-Friends are the siblings God never gave us.
+Sorrow is knowledge, those that know the most must mourn the deepest, the tree of knowledge is not the tree of life.
 
-Let go of your attachment to being right, and suddenly your mind is more open. You're able to benefit from the unique viewpoints of others, without being crippled by your own judgement.
+Although there may be tragedy in your life, there's always a possibility to triumph. It doesn't matter who you are, where you come from. The ability to triumph begins with you. Always.
 
-Goals are the fuel in the furnace of achievement.
+Business, you know, may bring you money, but friendship hardly ever does.
 
-Go put your creed into the deed. Nor speak with double tongue.
+Irrigators channel waters; fletchers straighten arrows; carpenters bend wood; the wise master themselves.
 
-I want my friend to miss me as long as I miss him.
+The extreme limit of wisdom, that's what the public calls madness.
 
