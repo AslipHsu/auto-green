@@ -1,22 +1,22 @@
-Last updated at 2025-06-23 20:42:41 CST
+Last updated at 2025-06-23 22:20:43 CST
 
-Always remember that you are absolutely unique. Just like everyone else.
+Difficulties are things that show a person what they are.
 
-What is necessary to change a person is to change his awareness of himself.
+I have never been hurt by anything I didn't say.
 
-Change your life today. Don't gamble on the future, act now, without delay.
+People usually compare the computer to the head of the human being. I would say that hardware is the bone of the head, the skull. The semiconductor is the brain within the head. The software is the wisdom. And data is the knowledge.
 
-Yesterday's home runs don't win today's games.
+To exist is to change, to change is to mature, to mature is to go on creating oneself endlessly.
 
-A person who never made a mistake never tried anything new.
+Your friends will know you better in the first minute you meet than your acquaintances will know you in a thousand years.
 
-Sorrow is knowledge, those that know the most must mourn the deepest, the tree of knowledge is not the tree of life.
+Through pride we are ever deceiving ourselves. But deep down below the surface of the average conscience a still, small voice says to us, something is out of tune.
 
-Although there may be tragedy in your life, there's always a possibility to triumph. It doesn't matter who you are, where you come from. The ability to triumph begins with you. Always.
+Along with success comes a reputation for wisdom.
 
-Business, you know, may bring you money, but friendship hardly ever does.
+Until you value yourself, you won't value your time. Until you value your time, you won't do anything with it.
 
-Irrigators channel waters; fletchers straighten arrows; carpenters bend wood; the wise master themselves.
+Truth is powerful and it prevails.
 
-The extreme limit of wisdom, that's what the public calls madness.
+Life is a succession of lessons, which must be lived to be understood.
 
