@@ -1,22 +1,22 @@
-Last updated at 2025-06-24 04:22:54 CST
+Last updated at 2025-06-24 06:19:45 CST
 
-Take rest; a field that has rested gives a bountiful crop.
+The greatest way to live with honor in this world is to be what we pretend to be.
 
-Wisdom is found only in truth.
+My motto was always to keep swinging. Whether I was in a slump or feeling badly or having trouble off the field, the only thing to do was keep swinging.
 
-Excellence is to do a common thing in an uncommon way.
+If only wed stop trying to be happy wed have a pretty good time.
 
-It is with words as with sunbeams. The more they are condensed, the deeper they burn.
+Our doubts are traitors and make us lose the good we often might win, by fearing to attempt.
 
-Peace is not something you wish for. It's something you make, something you do, something you are, and something you give away.
+When we feel love and kindness toward others, it not only makes others feel loved and cared for, but it helps us also to develop inner happiness and peace.
 
-There is only one success: to be able to spend your life in your own way.
+If you're trying to create a company, it's like baking a cake. You have to have all the ingredients in the right proportion.
 
-There is no great genius without some touch of madness.
+There are three classes of men; lovers of wisdom, lovers of honor, and lovers of gain.
 
-Most of our pocket wisdom is conceived for the use of mediocre people, to discourage them from ambitious attempts, and generally console them in their mediocrity.
+We are made wise not by the recollection of our past, but by the responsibility for our future.
 
-No valid plans for the future can be made by those who have no capacity for living now.
+False friendship, like the ivy, decays and ruins the walls it embraces; but true friendship gives new life and animation to the object it supports.
 
-Never tell people how to do things. Tell them what to do and they will surprise you with their ingenuity.
+The biggest adventure you can ever take is to live the life of your dreams.
 
