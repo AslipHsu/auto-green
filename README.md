@@ -1,22 +1,22 @@
-Last updated at 2025-06-23 06:18:20 CST
+Last updated at 2025-06-23 09:49:25 CST
 
-The moment one gives close attention to anything, it becomes a mysterious, awesome, indescribably magnificent world in itself.
+Life is a learning experience, only if you learn.
 
-Feeling and longing are the motive forces behind all human endeavor and human creations.
+Believe you can and you're halfway there.
 
-There is nothing so useless as doing efficiently that which should not be done at all.
+One's friends are that part of the human race with which one can be human.
 
-Fans don't boo nobodies.
+He who knows himself is enlightened.
 
-Quality is not an act; it is a habit.
+Love yourself first and everything else falls into line. You really have to love yourself to get anything done in this world.
 
-If one is lucky, a solitary fantasy can totally transform one million realities.
+Technology frightens me to death. It's designed by engineers to impress other engineers. And they always come with instruction booklets that are written by engineers for other engineers — which is why almost no technology ever works.
 
-There is no charm equal to tenderness of heart.
+May all beings have happy minds.
 
-With the realization of one's own potential and self-confidence in one's ability, one can build a better world.
+Being entirely honest with oneself is a good exercise.
 
-In friendship as well as love, ignorance very often contributes more to our happiness than knowledge.
+Without freedom of thought, there can be no such thing as wisdom - and no such thing as public liberty without freedom of speech.
 
-Fine words and an insinuating appearance are seldom associated with true virtue
+Criticism is something you can easily avoid by saying nothing, doing nothing, and being nothing.
 
