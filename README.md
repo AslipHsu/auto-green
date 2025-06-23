@@ -1,22 +1,22 @@
-Last updated at 2025-06-23 11:26:08 CST
+Last updated at 2025-06-23 12:34:05 CST
 
-The amount of happiness that you have depends on the amount of freedom you have in your heart.
+Read as you taste fruit or savor wine, or enjoy friendship, love or life.
 
-What worries you masters you.
+Friendship is a very taxing and arduous form of leisure activity.
 
-Quality means doing it right when no one is looking.
+Perseverance is a great element of success. If you only knock long enough and loud enough at the gate, you are sure to wake up somebody.
 
-Well begun is half done.
+Life is about timing.
 
-Most folks are as happy as they make up their minds to be.
+Respect should be earned by actions, and not acquired by years.
 
-I will give you a definition of a proud man: he is a man who has neither vanity nor wisdom one filled with hatreds cannot be vain, neither can he be wise.
+To see things in the seed, that is genius.
 
-People may doubt what you say, but they will believe what you do.
+We are what we repeatedly do. Excellence, then, is not an act, but a habit.
 
-Life is the only real counselor; wisdom unfiltered through personal experience does not become a part of the moral tissue.
+There is no passion to be found playing small - in settling for a life that is less than the one you are capable of living.
 
-A friend is a gift you give yourself.
+In the middle of every difficulty lies opportunity.
 
-The only journey is the one within.
+To climb steep hills requires a slow pace at first.
 
