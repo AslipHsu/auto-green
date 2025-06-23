@@ -1,22 +1,22 @@
-Last updated at 2025-06-24 02:29:09 CST
+Last updated at 2025-06-24 04:22:54 CST
 
-You've got to go out on a limb sometimes because that's where the fruit is.
+Take rest; a field that has rested gives a bountiful crop.
 
-What happens is not as important as how you react to what happens.
+Wisdom is found only in truth.
 
-Love is the wisdom of the fool and the folly of the wise.
+Excellence is to do a common thing in an uncommon way.
 
-Know from the rivers in clefts and in crevices: those in small channels flow noisily, the great flow silent. Whatever's not full makes noise. Whatever is full is quiet.
+It is with words as with sunbeams. The more they are condensed, the deeper they burn.
 
-The possibilities are numerous once we decide to act and not react.
+Peace is not something you wish for. It's something you make, something you do, something you are, and something you give away.
 
-Men in general judge more from appearances than from reality. All men have eyes, but few have the gift of penetration.
+There is only one success: to be able to spend your life in your own way.
 
-Ability will never catch up with the demand for it.
+There is no great genius without some touch of madness.
 
-A day of worry is more exhausting than a day of work.
+Most of our pocket wisdom is conceived for the use of mediocre people, to discourage them from ambitious attempts, and generally console them in their mediocrity.
 
-If you're going through hell, keep going.
+No valid plans for the future can be made by those who have no capacity for living now.
 
-It may happen sometimes that a long debate becomes the cause of a longer friendship. Commonly, those who dispute with one another at last agree.
+Never tell people how to do things. Tell them what to do and they will surprise you with their ingenuity.
 
