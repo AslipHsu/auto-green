@@ -1,22 +1,22 @@
-Last updated at 2025-06-25 04:22:58 CST
+Last updated at 2025-06-25 06:19:00 CST
 
-When deeds and words are in accord, the whole world is transformed.
+He is a wise man who does not grieve for the things which he has not but rejoices for those which he has.
 
-Until you make peace with who you are, you'll never be content with what you have.
+Do the difficult things while they are easy and do the great things while they are small. A journey of a thousand miles must begin with a single step.
 
-I never considered a difference of opinion in politics, in religion, in philosophy, as cause for withdrawing from a friend.
+True friendship multiplies the good in life and divides its evils. Strive to have friends, for life without friends is like life on a desert island... to find one real friend in a lifetime is good fortune; to keep him is a blessing.
 
-A man sees in the world what he carries in his heart.
+You will never be happy if you continue to search for what happiness consists of. You will never live if you are looking for the meaning of life.
 
-Courage is going from failure to failure without losing enthusiasm.
+You're not obligated to win. You're obligated to keep trying to do the best you can every day.
 
-Let us be grateful to people who make us happy; they are the charming gardeners who make our souls blossom.
+Imagination is the highest kite one can fly.
 
-Resolutely train yourself to attain peace.
+Technology is a word that describes something that doesn't work yet.
 
-I would maintain that thanks are the highest form of thought, and that gratitude is happiness doubled by wonder.
+Knowledge speaks, but wisdom listens.
 
-A hero is no braver than an ordinary man, but he is braver five minutes longer.
+In action a great heart is the chief qualification. In work, a great head.
 
-Joy is the best makeup.
+Friendship... is not something you learn in school. But if you haven't learned the meaning of friendship, you really haven't learned anything.
 
