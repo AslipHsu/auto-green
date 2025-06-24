@@ -1,22 +1,22 @@
-Last updated at 2025-06-24 06:19:45 CST
+Last updated at 2025-06-24 09:43:54 CST
 
-The greatest way to live with honor in this world is to be what we pretend to be.
+Nobody made a greater mistake than he who did nothing because he could do only a little.
 
-My motto was always to keep swinging. Whether I was in a slump or feeling badly or having trouble off the field, the only thing to do was keep swinging.
+Yesterday is history. Tomorrow is a mystery. And today? Today is a gift. That is why we call it the present.
 
-If only wed stop trying to be happy wed have a pretty good time.
+Wisdom and penetration are the fruit of experience, not the lessons of retirement and leisure. Great necessities call out great virtues.
 
-Our doubts are traitors and make us lose the good we often might win, by fearing to attempt.
+I am not bound to win, but I am bound to be true. I am not bound to succeed, but I am bound to live by the light that I have. I must stand with anybody that stands right, and stand with him while he is right, and part with him when he goes wrong.
 
-When we feel love and kindness toward others, it not only makes others feel loved and cared for, but it helps us also to develop inner happiness and peace.
+Always keep an open mind and a compassionate heart.
 
-If you're trying to create a company, it's like baking a cake. You have to have all the ingredients in the right proportion.
+We choose our joys and sorrows long before we experience them.
 
-There are three classes of men; lovers of wisdom, lovers of honor, and lovers of gain.
+The thing always happens that you really believe in; and the belief in a thing makes it happen.
 
-We are made wise not by the recollection of our past, but by the responsibility for our future.
+Sometimes being a friend means mastering the art of timing. There is a time for silence. A time to let go and allow people to hurl themselves into their own destiny. And a time to prepare to pick up the pieces when it's all over.
 
-False friendship, like the ivy, decays and ruins the walls it embraces; but true friendship gives new life and animation to the object it supports.
+True wisdom comes to each of us when we realize how little we understand about life, ourselves, and the world around us.
 
-The biggest adventure you can ever take is to live the life of your dreams.
+To bring anything into your life, imagine that it's already there.
 
