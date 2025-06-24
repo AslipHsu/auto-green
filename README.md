@@ -1,22 +1,22 @@
-Last updated at 2025-06-24 20:41:52 CST
+Last updated at 2025-06-24 22:20:46 CST
 
-If you talk to a man in a language he understands, that goes to his head. If you talk to him in his language, that goes to his heart.
+Be the change that you want to see in the world.
 
-Wisdom cannot come by railroad or automobile or airplane or be hurried up by telegraph or telephone.
+Our lives are the only meaningful expression of what we believe and in Whom we believe. And the only real wealth, for any of us, lies in our faith.
 
-You have to believe in yourself.
+He who knows, does not speak. He who speaks, does not know.
 
-Give whatever you are doing and whoever you are with the gift of your attention.
+In rivers, the water that you touch is the last of what has passed and the first of that which comes; so with present time.
 
-The world has the habit of making room for the man whose actions show that he knows where he is going.
+Before you put on a frown, make absolutely sure there are no smiles available.
 
-The truest greatness lies in being kind, the truest wisdom in a happy mind.
+Courage is rightly esteemed the first of human qualities... because it is the quality which guarantees all others.
 
-Lots of people want to ride with you in the limo, but what you want is someone who will take the bus with you when the limo breaks down.
+If you break your neck, if you have nothing to eat, if your house is on fire, then you got a problem. Everything else is inconvenience.
 
-We are made wise not by the recollection of our past, but by the responsibility for our future.
+Friendship is almost always the union of a part of one mind with the part of another; people are friends in spots.
 
-All I can say about life is, Oh God, enjoy it!
+True happiness means forging a strong spirit that is undefeated, no matter how trying our circumstances.
 
-To command is to serve, nothing more and nothing less.
+Get busy living or get busy dying.
 
