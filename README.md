@@ -1,22 +1,22 @@
-Last updated at 2025-06-24 14:31:12 CST
+Last updated at 2025-06-24 16:28:42 CST
 
-Much wisdom often goes with fewer words.
+No day in which you learn something is a complete loss.
 
-If you have the guts to keep making mistakes, your wisdom and intelligence leap forward with huge momentum.
+What you get by achieving your goals is not as important as what you become by achieving your goals.
 
-Nothing could be worse than the fear that one had given up too soon and left one unexpended effort that might have saved the world.
+If you want things to be different, perhaps the answer is to become different yourself.
 
-Problems are not stop signs, they are guidelines.
+Action may not always bring happiness; but there is no happiness without action.
 
-We are Divine enough to ask and we are important enough to receive.
+Adversity causes some men to break, others to break records.
 
-It is a common experience that a problem difficult at night is resolved in the morning after the committee of sleep has worked on it.
+When your desires are strong enough you will appear to possess superhuman powers to achieve.
 
-Quality means doing it right when no one is looking.
+Be slow to fall into friendship; but when thou art in, continue firm and constant.
 
-Setting an example is not the main means of influencing another, it is the only means.
+Numberless are the worlds wonders, but none more wonderful than man.
 
-We are not animals. We are not a product of what has happened to us in our past. We have the power of choice.
+Most powerful is he who has himself in his own power.
 
-Be sure you put your feet in the right place, then stand firm.
+The only Zen you find on the tops of mountains is the Zen you bring up there.
 
