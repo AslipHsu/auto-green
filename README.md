@@ -1,22 +1,22 @@
-Last updated at 2025-06-24 09:43:54 CST
+Last updated at 2025-06-24 11:18:24 CST
 
-Nobody made a greater mistake than he who did nothing because he could do only a little.
+How wonderful that we have met with a paradox. Now we have some hope of making progress.
 
-Yesterday is history. Tomorrow is a mystery. And today? Today is a gift. That is why we call it the present.
+There are two ways of spreading light: to be the candle or the mirror that reflects it.
 
-Wisdom and penetration are the fruit of experience, not the lessons of retirement and leisure. Great necessities call out great virtues.
+My religion consists of a humble admiration of the illimitable superior spirit who reveals himself in the slight details we are able to perceive with our frail and feeble mind.
 
-I am not bound to win, but I am bound to be true. I am not bound to succeed, but I am bound to live by the light that I have. I must stand with anybody that stands right, and stand with him while he is right, and part with him when he goes wrong.
+Twenty years from now you will be more disappointed by the things that you didn't do than by the ones you did do.
 
-Always keep an open mind and a compassionate heart.
+There is no failure except in no longer trying.
 
-We choose our joys and sorrows long before we experience them.
+Formula for success: under promise and over deliver.
 
-The thing always happens that you really believe in; and the belief in a thing makes it happen.
+True happiness arises, in the first place, from the enjoyment of oneself, and in the next, from the friendship and conversation of a few select companions.
 
-Sometimes being a friend means mastering the art of timing. There is a time for silence. A time to let go and allow people to hurl themselves into their own destiny. And a time to prepare to pick up the pieces when it's all over.
+Let us resolve to be masters, not the victims, of our history, controlling our own destiny without giving way to blind suspicions and emotions.
 
-True wisdom comes to each of us when we realize how little we understand about life, ourselves, and the world around us.
+By accepting yourself and being fully what you are, your presence can make others happy.
 
-To bring anything into your life, imagine that it's already there.
+Forgiveness is that subtle thread that binds both love and friendship. Without forgiveness, you may not even have a child one day.
 
