@@ -1,22 +1,22 @@
-Last updated at 2025-06-24 22:20:46 CST
+Last updated at 2025-06-25 00:26:37 CST
 
-Be the change that you want to see in the world.
+When we feel love and kindness toward others, it not only makes others feel loved and cared for, but it helps us also to develop inner happiness and peace.
 
-Our lives are the only meaningful expression of what we believe and in Whom we believe. And the only real wealth, for any of us, lies in our faith.
+To follow, without halt, one aim: There is the secret of success.
 
-He who knows, does not speak. He who speaks, does not know.
+The person who makes a success of living is the one who see his goal steadily and aims for it unswervingly. That is dedication.
 
-In rivers, the water that you touch is the last of what has passed and the first of that which comes; so with present time.
+To be fully alive, fully human, and completely awake is to be continually thrown out of the nest.
 
-Before you put on a frown, make absolutely sure there are no smiles available.
+One secret of success in life is for a man to be ready for his opportunity when it comes.
 
-Courage is rightly esteemed the first of human qualities... because it is the quality which guarantees all others.
+One's philosophy is not best expressed in words; it is expressed in the choices one makes... and the choices we make are ultimately our responsibility.
 
-If you break your neck, if you have nothing to eat, if your house is on fire, then you got a problem. Everything else is inconvenience.
+Happiness is the reward we get for living to the highest right we know.
 
-Friendship is almost always the union of a part of one mind with the part of another; people are friends in spots.
+Love does not consist of gazing at each other, but in looking together in the same direction.
 
-True happiness means forging a strong spirit that is undefeated, no matter how trying our circumstances.
+One loyal friend is worth ten thousand relatives.
 
-Get busy living or get busy dying.
+You can't win unless you learn how to lose.
 
