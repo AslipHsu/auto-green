@@ -1,22 +1,22 @@
-Last updated at 2025-06-24 11:18:24 CST
+Last updated at 2025-06-24 12:29:29 CST
 
-How wonderful that we have met with a paradox. Now we have some hope of making progress.
+Friendship with oneself is all important, because without it one cannot be friends with anyone else in the world.
 
-There are two ways of spreading light: to be the candle or the mirror that reflects it.
+Speak when you are angry, and you will make the best speech you will ever regret.
 
-My religion consists of a humble admiration of the illimitable superior spirit who reveals himself in the slight details we are able to perceive with our frail and feeble mind.
+Some people go to priests; others to poetry; I to my friends.
 
-Twenty years from now you will be more disappointed by the things that you didn't do than by the ones you did do.
+How many legs does a dog have if you call his tail a leg? Four. Saying that a tail is a leg doesn't make it a leg.
 
-There is no failure except in no longer trying.
+Let us revere, let us worship, but erect and open-eyed, the highest, not the lowest; the future, not the past!
 
-Formula for success: under promise and over deliver.
+Not what we have but what we enjoy constitutes our abundance.
 
-True happiness arises, in the first place, from the enjoyment of oneself, and in the next, from the friendship and conversation of a few select companions.
+To get the full value of joy you must have someone to divide it with.
 
-Let us resolve to be masters, not the victims, of our history, controlling our own destiny without giving way to blind suspicions and emotions.
+A true friend is someone who is there for you when he'd rather be anywhere else.
 
-By accepting yourself and being fully what you are, your presence can make others happy.
+Although there may be tragedy in your life, there's always a possibility to triumph. It doesn't matter who you are, where you come from. The ability to triumph begins with you. Always.
 
-Forgiveness is that subtle thread that binds both love and friendship. Without forgiveness, you may not even have a child one day.
+If you have the guts to keep making mistakes, your wisdom and intelligence leap forward with huge momentum.
 
