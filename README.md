@@ -1,22 +1,22 @@
-Last updated at 2025-06-24 16:28:42 CST
+Last updated at 2025-06-24 18:22:28 CST
 
-No day in which you learn something is a complete loss.
+The price of greatness is responsibility.
 
-What you get by achieving your goals is not as important as what you become by achieving your goals.
+Fame usually comes to those who are thinking about something else.
 
-If you want things to be different, perhaps the answer is to become different yourself.
+But I'll tell you what hermits realize. If you go off into a far, far forest and get very quiet, you'll come to understand that you're connected with everything.
 
-Action may not always bring happiness; but there is no happiness without action.
+This is the final test of a gentleman: his respect for those who can be of no possible value to him.
 
-Adversity causes some men to break, others to break records.
+Remember that failure is an event, not a person.
 
-When your desires are strong enough you will appear to possess superhuman powers to achieve.
+Look up at the stars and not down at your feet. Try to make sense of what you see, and wonder about what makes the universe exist. Be curious.
 
-Be slow to fall into friendship; but when thou art in, continue firm and constant.
+Democracy's premise rests on the notion that the collective wisdom of the majority will prove right more often than it's wrong; that given sufficient opportunity in the pursuit of happiness, your population will develop its talents, its intellect, its better judgment; that over time its capacity for discernment and self-correction will be enlarged.
 
-Numberless are the worlds wonders, but none more wonderful than man.
+A wise man can learn more from a foolish question than a fool can learn from a wise answer.
 
-Most powerful is he who has himself in his own power.
+Let there be no purpose in friendship save the deepening of the spirit.
 
-The only Zen you find on the tops of mountains is the Zen you bring up there.
+O, what a tangled web we weave when first we practice to deceive!
 
