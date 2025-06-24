@@ -1,22 +1,22 @@
-Last updated at 2025-06-25 00:26:37 CST
+Last updated at 2025-06-25 02:28:44 CST
 
-When we feel love and kindness toward others, it not only makes others feel loved and cared for, but it helps us also to develop inner happiness and peace.
+All our knowledge begins with the senses, proceeds then to the understanding, and ends with reason. There is nothing higher than reason.
 
-To follow, without halt, one aim: There is the secret of success.
+Follow your instincts. That is where true wisdom manifests itself.
 
-The person who makes a success of living is the one who see his goal steadily and aims for it unswervingly. That is dedication.
+He who talks more is sooner exhausted.
 
-To be fully alive, fully human, and completely awake is to be continually thrown out of the nest.
+You cannot find yourself by going into the past. You can find yourself by coming into the present.
 
-One secret of success in life is for a man to be ready for his opportunity when it comes.
+An appeaser is one who feeds a crocodile, hoping it will eat him last.
 
-One's philosophy is not best expressed in words; it is expressed in the choices one makes... and the choices we make are ultimately our responsibility.
+The greatest way to live with honor in this world is to be what we pretend to be.
 
-Happiness is the reward we get for living to the highest right we know.
+It is very easy to forgive others their mistakes; it takes more grit to forgive them for having witnessed your own.
 
-Love does not consist of gazing at each other, but in looking together in the same direction.
+When I dare to be powerful, to use my strength in the service of my vision, then it becomes less and less important whether I am afraid.
 
-One loyal friend is worth ten thousand relatives.
+He who is fixed to a star does not change his mind.
 
-You can't win unless you learn how to lose.
+Be Impeccable with Your Word. Speak with integrity. Say only what you mean. Avoid using the word to speak against yourself or to gossip about others. Use the power of your word in the direction of truth and love.
 
