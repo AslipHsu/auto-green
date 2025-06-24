@@ -1,22 +1,22 @@
-Last updated at 2025-06-25 02:28:44 CST
+Last updated at 2025-06-25 04:22:58 CST
 
-All our knowledge begins with the senses, proceeds then to the understanding, and ends with reason. There is nothing higher than reason.
+When deeds and words are in accord, the whole world is transformed.
 
-Follow your instincts. That is where true wisdom manifests itself.
+Until you make peace with who you are, you'll never be content with what you have.
 
-He who talks more is sooner exhausted.
+I never considered a difference of opinion in politics, in religion, in philosophy, as cause for withdrawing from a friend.
 
-You cannot find yourself by going into the past. You can find yourself by coming into the present.
+A man sees in the world what he carries in his heart.
 
-An appeaser is one who feeds a crocodile, hoping it will eat him last.
+Courage is going from failure to failure without losing enthusiasm.
 
-The greatest way to live with honor in this world is to be what we pretend to be.
+Let us be grateful to people who make us happy; they are the charming gardeners who make our souls blossom.
 
-It is very easy to forgive others their mistakes; it takes more grit to forgive them for having witnessed your own.
+Resolutely train yourself to attain peace.
 
-When I dare to be powerful, to use my strength in the service of my vision, then it becomes less and less important whether I am afraid.
+I would maintain that thanks are the highest form of thought, and that gratitude is happiness doubled by wonder.
 
-He who is fixed to a star does not change his mind.
+A hero is no braver than an ordinary man, but he is braver five minutes longer.
 
-Be Impeccable with Your Word. Speak with integrity. Say only what you mean. Avoid using the word to speak against yourself or to gossip about others. Use the power of your word in the direction of truth and love.
+Joy is the best makeup.
 
