@@ -1,22 +1,22 @@
-Last updated at 2025-06-24 18:22:28 CST
+Last updated at 2025-06-24 20:41:52 CST
 
-The price of greatness is responsibility.
+If you talk to a man in a language he understands, that goes to his head. If you talk to him in his language, that goes to his heart.
 
-Fame usually comes to those who are thinking about something else.
+Wisdom cannot come by railroad or automobile or airplane or be hurried up by telegraph or telephone.
 
-But I'll tell you what hermits realize. If you go off into a far, far forest and get very quiet, you'll come to understand that you're connected with everything.
+You have to believe in yourself.
 
-This is the final test of a gentleman: his respect for those who can be of no possible value to him.
+Give whatever you are doing and whoever you are with the gift of your attention.
 
-Remember that failure is an event, not a person.
+The world has the habit of making room for the man whose actions show that he knows where he is going.
 
-Look up at the stars and not down at your feet. Try to make sense of what you see, and wonder about what makes the universe exist. Be curious.
+The truest greatness lies in being kind, the truest wisdom in a happy mind.
 
-Democracy's premise rests on the notion that the collective wisdom of the majority will prove right more often than it's wrong; that given sufficient opportunity in the pursuit of happiness, your population will develop its talents, its intellect, its better judgment; that over time its capacity for discernment and self-correction will be enlarged.
+Lots of people want to ride with you in the limo, but what you want is someone who will take the bus with you when the limo breaks down.
 
-A wise man can learn more from a foolish question than a fool can learn from a wise answer.
+We are made wise not by the recollection of our past, but by the responsibility for our future.
 
-Let there be no purpose in friendship save the deepening of the spirit.
+All I can say about life is, Oh God, enjoy it!
 
-O, what a tangled web we weave when first we practice to deceive!
+To command is to serve, nothing more and nothing less.
 
