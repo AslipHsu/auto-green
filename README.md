@@ -1,22 +1,22 @@
-Last updated at 2025-06-25 16:28:51 CST
+Last updated at 2025-06-25 18:22:17 CST
 
-Nothing is softer or more flexible than water, yet nothing can resist it.
+Perseverance is a great element of success. If you only knock long enough and loud enough at the gate, you are sure to wake up somebody.
 
-There are three methods to gaining wisdom. The first is reflection, which is the highest. The second is limitation, which is the easiest. The third is experience, which is the bitterest.
+People are so constituted that everybody would rather undertake what they see others do, whether they have an aptitude for it or not.
 
-Follow effective action with quiet reflection. From the quiet reflection will come even more effective action.
+In friendship as well as love, ignorance very often contributes more to our happiness than knowledge.
 
-The only way to prove that you're a good sport is to lose.
+Give whatever you are doing and whoever you are with the gift of your attention.
 
-Man is equally incapable of seeing the nothingness from which he emerges and the infinity in which he is engulfed.
+Important principles may, and must, be inflexible.
 
-It is not wisdom but Authority that makes a law.
+If we open a quarrel between past and present, we shall find that we have lost the future.
 
-Being entirely honest with oneself is a good exercise.
+Computers are like bikinis. They save people a lot of guesswork.
 
-Music is a higher revelation than all wisdom and philosophy.
+Good judgment comes from experience, and a lot of that comes from bad judgment.
 
-The biggest adventure you can ever take is to live the life of your dreams.
+Whatever happens, take responsibility.
 
-Along with success comes a reputation for wisdom.
+Adversity has the effect of eliciting talents, which in prosperous circumstances would have lain dormant.
 
