@@ -1,22 +1,22 @@
-Last updated at 2025-06-26 00:26:55 CST
+Last updated at 2025-06-26 02:29:24 CST
 
-Friendship, like the immortality of the soul, is too good to be believed.
+The winner ain't the one with the fastest car it's the one who refuses to lose.
 
-Be kind whenever possible. It is always possible.
+Patience and perseverance have a magical effect before which difficulties disappear and obstacles vanish.
 
-Pitching is the art of instilling fear.
+All wisdom does not reside in Delhi.
 
-You might well remember that nothing can bring you success but yourself.
+Excellence, then, is a state concerned with choice, lying in a mean, relative to us, this being determined by reason and in the way in which the man of practical wisdom would determine it.
 
-Quick decisions are unsafe decisions.
+Use what talents you possess; the woods would be very silent if no birds sang there except those that sang best.
 
-The two most powerful warriors are patience and time.
+Experience is not what happens to you; it's what you do with what happens to you.
 
-No person is your friend who demands your silence or denies your right to grow.
+Love is rarer than genius itself. And friendship is rarer than love.
 
-Everyone in the world ought to do the things for which he is specially adapted. It is the part of wisdom to recognize what each one of us is best fitted for, and it is the part of education to perfect and utilize such predispositions. Because education can direct and aid nature but can never transform her.
+One friend in a lifetime is much; two are many; three are hardly possible. Friendship needs a certain parallelism of life, a community of thought, a rivalry of aim.
 
-It is not a lack of love, but a lack of friendship that makes unhappy marriages.
+Experience keeps a dear school, but fools will learn in no other.
 
-Good timber does not grow with ease; the stronger the wind, the stronger the trees.
+You win the victory when you yield to friends.
 
