@@ -1,22 +1,22 @@
-Last updated at 2025-06-25 06:19:00 CST
+Last updated at 2025-06-25 09:44:18 CST
 
-He is a wise man who does not grieve for the things which he has not but rejoices for those which he has.
+The only journey is the one within.
 
-Do the difficult things while they are easy and do the great things while they are small. A journey of a thousand miles must begin with a single step.
+You can fool all the people some of the time, and some of the people all the time, but you cannot fool all the people all the time.
 
-True friendship multiplies the good in life and divides its evils. Strive to have friends, for life without friends is like life on a desert island... to find one real friend in a lifetime is good fortune; to keep him is a blessing.
+Belief consists in accepting the affirmations of the soul; Unbelief, in denying them.
 
-You will never be happy if you continue to search for what happiness consists of. You will never live if you are looking for the meaning of life.
+As an organizer I start from where the world is, as it is, not as I would like it to be.
 
-You're not obligated to win. You're obligated to keep trying to do the best you can every day.
+Neither a lofty degree of intelligence nor imagination nor both together go to the making of genius. Love, love, love, that is the soul of genius.
 
-Imagination is the highest kite one can fly.
+Love and compassion open our own inner life, reducing stress, distrust and loneliness.
 
-Technology is a word that describes something that doesn't work yet.
+No day in which you learn something is a complete loss.
 
-Knowledge speaks, but wisdom listens.
+The day of fortune is like a harvest day, we must be busy when the corn is ripe.
 
-In action a great heart is the chief qualification. In work, a great head.
+No garden is without its weeds.
 
-Friendship... is not something you learn in school. But if you haven't learned the meaning of friendship, you really haven't learned anything.
+Your attitude, not your aptitude, will determine your altitude.
 
