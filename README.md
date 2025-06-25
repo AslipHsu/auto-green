@@ -1,22 +1,22 @@
-Last updated at 2025-06-25 20:42:21 CST
+Last updated at 2025-06-25 22:20:22 CST
 
-Do not waste yourself in rejection, nor bark against the bad, but chant the beauty of the good.
+A house divided against itself cannot stand.
 
-Every man is a damn fool for at least five minutes every day; wisdom consists in not exceeding the limit.
+If you seek truth, you will not seek victory by dishonorable means, and if you find truth you will become invincible.
 
-You can't shake hands with a clenched fist.
+Moral excellence comes about as a result of habit. We become just by doing just acts, temperate by doing temperate acts, brave by doing brave acts.
 
-The only true wisdom is in knowing you know nothing.
+All our knowledge has its origins in our perceptions.
 
-Wisdom ceases to be wisdom when it becomes too proud to weep, too grave to laugh, and too selfish to seek other than itself.
+Some do not understand that we must die, But those who do realize this settle their quarrels.
 
-Life without love is like a tree without blossoms or fruit.
+Happiness can exist only in acceptance.
 
-Love is blind; friendship closes its eyes.
+Begin, be bold, and venture to be wise.
 
-Better than a thousand useless words is one useful word, upon hearing which one attains peace.
+Baseball is the only field of endeavor where a man can succeed three times out of ten and be considered a good performer.
 
-Imagination is not a talent of some men but is the health of every man.
+Failure will never overtake me if my determination to succeed is strong enough.
 
-But what is liberty without wisdom, and without virtue? It is the greatest of all possible evils; for it is folly, vice, and madness, without tuition or restraint.
+Positive thinking will let you do everything better than negative thinking will.
 
