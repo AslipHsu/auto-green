@@ -1,22 +1,22 @@
-Last updated at 2025-06-26 04:23:05 CST
+Last updated at 2025-06-26 06:19:03 CST
 
-If one is lucky, a solitary fantasy can totally transform one million realities.
+Be slow of tongue and quick of eye.
 
-Skill to do comes of doing.
+There is no great genius without some touch of madness.
 
-Kindness in words creates confidence. Kindness in thinking creates profoundness. Kindness in giving creates love.
+I have learned that friendship isn't about who you've known the longest, it's about who came and never left your side.
 
-The fewer rules a coach has, the fewer rules there are for players to break.
+Wisdom has never made a bigot, but learning has.
 
-One fails forward toward success.
+How wonderful it is that nobody need wait a single moment before starting to improve the world.
 
-The awareness of our own strength makes us modest.
+The world turns aside to let any man pass who knows where he is going.
 
-The past has no power to stop you from being present now. Only your grievance about the past can do that.
+A failure is a man who has blundered but is not capable of cashing in on the experience.
 
-We are made wise not by the recollection of our past, but by the responsibility for our future.
+You are a product of your environment. So choose the environment that will best develop you toward your objective. Analyze your life in terms of its environment. Are the things around you helping you toward success - or are they holding you back?
 
-Don't look back. Something might be gaining on you.
+Logic is the beginning of wisdom, not the end.
 
-Meditation is the dissolution of thoughts in eternal awareness or Pure consciousness without objectification, knowing without thinking, merging finitude in infinity.
+It has never been my object to record my dreams, just to realize them.
 
