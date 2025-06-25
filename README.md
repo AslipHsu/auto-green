@@ -1,22 +1,22 @@
-Last updated at 2025-06-25 18:22:17 CST
+Last updated at 2025-06-25 20:42:21 CST
 
-Perseverance is a great element of success. If you only knock long enough and loud enough at the gate, you are sure to wake up somebody.
+Do not waste yourself in rejection, nor bark against the bad, but chant the beauty of the good.
 
-People are so constituted that everybody would rather undertake what they see others do, whether they have an aptitude for it or not.
+Every man is a damn fool for at least five minutes every day; wisdom consists in not exceeding the limit.
 
-In friendship as well as love, ignorance very often contributes more to our happiness than knowledge.
+You can't shake hands with a clenched fist.
 
-Give whatever you are doing and whoever you are with the gift of your attention.
+The only true wisdom is in knowing you know nothing.
 
-Important principles may, and must, be inflexible.
+Wisdom ceases to be wisdom when it becomes too proud to weep, too grave to laugh, and too selfish to seek other than itself.
 
-If we open a quarrel between past and present, we shall find that we have lost the future.
+Life without love is like a tree without blossoms or fruit.
 
-Computers are like bikinis. They save people a lot of guesswork.
+Love is blind; friendship closes its eyes.
 
-Good judgment comes from experience, and a lot of that comes from bad judgment.
+Better than a thousand useless words is one useful word, upon hearing which one attains peace.
 
-Whatever happens, take responsibility.
+Imagination is not a talent of some men but is the health of every man.
 
-Adversity has the effect of eliciting talents, which in prosperous circumstances would have lain dormant.
+But what is liberty without wisdom, and without virtue? It is the greatest of all possible evils; for it is folly, vice, and madness, without tuition or restraint.
 
