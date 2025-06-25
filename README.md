@@ -1,22 +1,22 @@
-Last updated at 2025-06-25 14:31:01 CST
+Last updated at 2025-06-25 16:28:51 CST
 
-Genius is one per cent inspiration, ninety-nine per cent perspiration.
+Nothing is softer or more flexible than water, yet nothing can resist it.
 
-Learning is the beginning of wealth. Learning is the beginning of health. Learning is the beginning of spirituality. Searching and learning is where the miracle process all begins.
+There are three methods to gaining wisdom. The first is reflection, which is the highest. The second is limitation, which is the easiest. The third is experience, which is the bitterest.
 
-Freedom is the right to live as we wish.
+Follow effective action with quiet reflection. From the quiet reflection will come even more effective action.
 
-Meaning is not what you start with but what you end up with.
+The only way to prove that you're a good sport is to lose.
 
-You have to do your own growing no matter how tall your grandfather was.
+Man is equally incapable of seeing the nothingness from which he emerges and the infinity in which he is engulfed.
 
-How we spend our days is, of course, how we spend our lives.
+It is not wisdom but Authority that makes a law.
 
-Success in business requires training and discipline and hard work. But if you're not frightened by these things, the opportunities are just as great today as they ever were.
+Being entirely honest with oneself is a good exercise.
 
-O, what a tangled web we weave when first we practice to deceive!
+Music is a higher revelation than all wisdom and philosophy.
 
-If you find yourself in a hole, the first thing to do is stop digging.
+The biggest adventure you can ever take is to live the life of your dreams.
 
-If you have one true friend, you have more than your share.
+Along with success comes a reputation for wisdom.
 
