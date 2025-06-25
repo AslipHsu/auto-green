@@ -1,22 +1,22 @@
-Last updated at 2025-06-25 22:20:22 CST
+Last updated at 2025-06-26 00:26:55 CST
 
-A house divided against itself cannot stand.
+Friendship, like the immortality of the soul, is too good to be believed.
 
-If you seek truth, you will not seek victory by dishonorable means, and if you find truth you will become invincible.
+Be kind whenever possible. It is always possible.
 
-Moral excellence comes about as a result of habit. We become just by doing just acts, temperate by doing temperate acts, brave by doing brave acts.
+Pitching is the art of instilling fear.
 
-All our knowledge has its origins in our perceptions.
+You might well remember that nothing can bring you success but yourself.
 
-Some do not understand that we must die, But those who do realize this settle their quarrels.
+Quick decisions are unsafe decisions.
 
-Happiness can exist only in acceptance.
+The two most powerful warriors are patience and time.
 
-Begin, be bold, and venture to be wise.
+No person is your friend who demands your silence or denies your right to grow.
 
-Baseball is the only field of endeavor where a man can succeed three times out of ten and be considered a good performer.
+Everyone in the world ought to do the things for which he is specially adapted. It is the part of wisdom to recognize what each one of us is best fitted for, and it is the part of education to perfect and utilize such predispositions. Because education can direct and aid nature but can never transform her.
 
-Failure will never overtake me if my determination to succeed is strong enough.
+It is not a lack of love, but a lack of friendship that makes unhappy marriages.
 
-Positive thinking will let you do everything better than negative thinking will.
+Good timber does not grow with ease; the stronger the wind, the stronger the trees.
 
