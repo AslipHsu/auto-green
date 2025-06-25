@@ -1,22 +1,22 @@
-Last updated at 2025-06-26 02:29:24 CST
+Last updated at 2025-06-26 04:23:05 CST
 
-The winner ain't the one with the fastest car it's the one who refuses to lose.
+If one is lucky, a solitary fantasy can totally transform one million realities.
 
-Patience and perseverance have a magical effect before which difficulties disappear and obstacles vanish.
+Skill to do comes of doing.
 
-All wisdom does not reside in Delhi.
+Kindness in words creates confidence. Kindness in thinking creates profoundness. Kindness in giving creates love.
 
-Excellence, then, is a state concerned with choice, lying in a mean, relative to us, this being determined by reason and in the way in which the man of practical wisdom would determine it.
+The fewer rules a coach has, the fewer rules there are for players to break.
 
-Use what talents you possess; the woods would be very silent if no birds sang there except those that sang best.
+One fails forward toward success.
 
-Experience is not what happens to you; it's what you do with what happens to you.
+The awareness of our own strength makes us modest.
 
-Love is rarer than genius itself. And friendship is rarer than love.
+The past has no power to stop you from being present now. Only your grievance about the past can do that.
 
-One friend in a lifetime is much; two are many; three are hardly possible. Friendship needs a certain parallelism of life, a community of thought, a rivalry of aim.
+We are made wise not by the recollection of our past, but by the responsibility for our future.
 
-Experience keeps a dear school, but fools will learn in no other.
+Don't look back. Something might be gaining on you.
 
-You win the victory when you yield to friends.
+Meditation is the dissolution of thoughts in eternal awareness or Pure consciousness without objectification, knowing without thinking, merging finitude in infinity.
 
