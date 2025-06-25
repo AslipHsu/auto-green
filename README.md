@@ -1,22 +1,22 @@
-Last updated at 2025-06-25 12:30:07 CST
+Last updated at 2025-06-25 14:31:01 CST
 
-Human beings, who are almost unique in having the ability to learn from the experience of others, are also remarkable for their apparent disinclination to do so.
+Genius is one per cent inspiration, ninety-nine per cent perspiration.
 
-The superior man is modest in his speech but exceeds in his actions.
+Learning is the beginning of wealth. Learning is the beginning of health. Learning is the beginning of spirituality. Searching and learning is where the miracle process all begins.
 
-Once a new technology rolls over you, if you're not part of the steamroller, you're part of the road.
+Freedom is the right to live as we wish.
 
-Well begun is half done.
+Meaning is not what you start with but what you end up with.
 
-Without some goals and some efforts to reach it, no man can live.
+You have to do your own growing no matter how tall your grandfather was.
 
-What is not started today is never finished tomorrow.
+How we spend our days is, of course, how we spend our lives.
 
-The will to win, the desire to succeed, the urge to reach your full potential... these are the keys that will unlock the door to personal excellence.
+Success in business requires training and discipline and hard work. But if you're not frightened by these things, the opportunities are just as great today as they ever were.
 
-There is a difference between happiness and wisdom: he that thinks himself the happiest man is really so; but he that thinks himself the wisest is generally the greatest fool.
+O, what a tangled web we weave when first we practice to deceive!
 
-You do not become good by trying to be good, but by finding the goodness that is already within you.
+If you find yourself in a hole, the first thing to do is stop digging.
 
-A person who never made a mistake never tried anything new.
+If you have one true friend, you have more than your share.
 
