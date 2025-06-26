@@ -1,22 +1,22 @@
-Last updated at 2025-06-27 02:29:01 CST
+Last updated at 2025-06-27 04:22:34 CST
 
-He is a wise man who does not grieve for the things which he has not but rejoices for those which he has.
+It is the quality of our work which will please God, not the quantity.
 
-His lack of education is more than compensated for by his keenly developed moral bankruptcy.
+With every experience, you alone are painting your own canvas, thought by thought, choice by choice.
 
-Through pride we are ever deceiving ourselves. But deep down below the surface of the average conscience a still, small voice says to us, something is out of tune.
+Let us resolve to be masters, not the victims, of our history, controlling our own destiny without giving way to blind suspicions and emotions.
 
-The essence of true friendship is to make allowance for another's little lapses.
+Happiness does not come from doing easy work but from the afterglow of satisfaction that comes after the achievement of a difficult task that demanded our best.
 
-Never put off till tomorrow what you can do today.
+Knowledge speaks, but wisdom listens.
 
-A man is not old as long as he is seeking something.
+The ultimate promise of technology is to make us master of a world that we command by the push of a button.
 
-In all chaos there is a cosmos, in all disorder a secret order.
+All truths are easy to understand once they are discovered; the point is to discover them.
 
-Intuition will tell the thinking mind where to look next.
+Nothing is at last sacred but the integrity of your own mind.
 
-No matter how carefully you plan your goals they will never be more than pipe dreams unless you pursue them with gusto.
+The most complicated achievements of thought are possible without the assistance of consciousness.
 
-No distance of place or lapse of time can lessen the friendship of those who are thoroughly persuaded of each other's worth.
+If you have made mistakes, there is always another chance for you. You may have a fresh start any moment you choose.
 
