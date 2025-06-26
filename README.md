@@ -1,22 +1,22 @@
-Last updated at 2025-06-27 04:22:34 CST
+Last updated at 2025-06-27 06:18:53 CST
 
-It is the quality of our work which will please God, not the quantity.
+Maxim for life: You get treated in life the way you teach people to treat you.
 
-With every experience, you alone are painting your own canvas, thought by thought, choice by choice.
+The ballot is stronger than the bullet.
 
-Let us resolve to be masters, not the victims, of our history, controlling our own destiny without giving way to blind suspicions and emotions.
+For it was not into my ear you whispered, but into my heart. It was not my lips you kissed, but my soul.
 
-Happiness does not come from doing easy work but from the afterglow of satisfaction that comes after the achievement of a difficult task that demanded our best.
+It is with words as with sunbeams. The more they are condensed, the deeper they burn.
 
-Knowledge speaks, but wisdom listens.
+It is not so much our friends' help that helps us, as the confidence of their help.
 
-The ultimate promise of technology is to make us master of a world that we command by the push of a button.
+I cannot always control what goes on outside. But I can always control what goes on inside.
 
-All truths are easy to understand once they are discovered; the point is to discover them.
+Better be wise by the misfortunes of others than by your own.
 
-Nothing is at last sacred but the integrity of your own mind.
+Time you enjoyed wasting was not wasted.
 
-The most complicated achievements of thought are possible without the assistance of consciousness.
+You can't shake hands with a clenched fist.
 
-If you have made mistakes, there is always another chance for you. You may have a fresh start any moment you choose.
+There never was a good knife made of bad steel.
 
