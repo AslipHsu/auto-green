@@ -1,22 +1,22 @@
-Last updated at 2025-06-27 00:25:47 CST
+Last updated at 2025-06-27 02:29:01 CST
 
-But what is liberty without wisdom, and without virtue? It is the greatest of all possible evils; for it is folly, vice, and madness, without tuition or restraint.
+He is a wise man who does not grieve for the things which he has not but rejoices for those which he has.
 
-One's life has value so long as one attributes value to the life of others, by means of love, friendship, indignation and compassion.
+His lack of education is more than compensated for by his keenly developed moral bankruptcy.
 
-However rare true love may be, it is less so than true friendship.
+Through pride we are ever deceiving ourselves. But deep down below the surface of the average conscience a still, small voice says to us, something is out of tune.
 
-Talent is God given. Be humble. Fame is man-given. Be grateful. Conceit is self-given. Be careful.
+The essence of true friendship is to make allowance for another's little lapses.
 
-Friendship is a strong and habitual inclination in two persons to promote the good and happiness of one another.
+Never put off till tomorrow what you can do today.
 
-You're never a loser until you quit trying.
+A man is not old as long as he is seeking something.
 
-The conditions of conquest are always easy. We have but to toil awhile, endure awhile, believe always, and never turn back.
+In all chaos there is a cosmos, in all disorder a secret order.
 
-I'm not interested in age. People who tell me their age are silly. You're as old as you feel.
+Intuition will tell the thinking mind where to look next.
 
-Inspiration exists, but it has to find us working.
+No matter how carefully you plan your goals they will never be more than pipe dreams unless you pursue them with gusto.
 
-Cleverness is not wisdom.
+No distance of place or lapse of time can lessen the friendship of those who are thoroughly persuaded of each other's worth.
 
