@@ -1,22 +1,22 @@
-Last updated at 2025-06-26 22:19:40 CST
+Last updated at 2025-06-27 00:25:47 CST
 
-It is one of the severest tests of friendship to tell your friend his faults. So to love a man that you cannot bear to see a stain upon him, and to speak painful truth through loving words, that is friendship.
+But what is liberty without wisdom, and without virtue? It is the greatest of all possible evils; for it is folly, vice, and madness, without tuition or restraint.
 
-You don't choose your family. They are God's gift to you, as you are to them.
+One's life has value so long as one attributes value to the life of others, by means of love, friendship, indignation and compassion.
 
-You are not here merely to make a living. You are here in order to enable the world to live more amply, with greater vision, with a finer spirit of hope and achievement. You are here to enrich the world, and you impoverish yourself if you forget the errand.
+However rare true love may be, it is less so than true friendship.
 
-The mark of your ignorance is the depth of your belief in injustice and tragedy. What the caterpillar calls the end of the world, the Master calls the butterfly.
+Talent is God given. Be humble. Fame is man-given. Be grateful. Conceit is self-given. Be careful.
 
-Do not go where the path may lead, go instead where there is no path and leave a trail.
+Friendship is a strong and habitual inclination in two persons to promote the good and happiness of one another.
 
-I have just three things to teach: simplicity, patience, compassion. These three are your greatest treasures.
+You're never a loser until you quit trying.
 
-We choose our joys and sorrows long before we experience them.
+The conditions of conquest are always easy. We have but to toil awhile, endure awhile, believe always, and never turn back.
 
-The happiness of a man in this life does not consist in the absence but in the mastery of his passions.
+I'm not interested in age. People who tell me their age are silly. You're as old as you feel.
 
-The difference between what we do and what we are capable of doing would suffice to solve most of the world's problems.
+Inspiration exists, but it has to find us working.
 
-Setting an example is not the main means of influencing another, it is the only means.
+Cleverness is not wisdom.
 
