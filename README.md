@@ -1,22 +1,22 @@
-Last updated at 2025-06-26 18:21:56 CST
+Last updated at 2025-06-26 20:41:48 CST
 
-The important thing is this: to be able at any moment to sacrifice what we are for what we could become.
+You will never be happy if you continue to search for what happiness consists of. You will never live if you are looking for the meaning of life.
 
-Short words are best and the old words when short are best of all.
+Success is not the key to happiness. Happiness is the key to success. If you love what you are doing, you will be successful.
 
-All fixed set patterns are incapable of adaptability or pliability. The truth is outside of all fixed patterns.
+Wisdom is found only in truth.
 
-If you smile when no one else is around, you really mean it.
+We make a living by what we get, but we make a life by what we give.
 
-A wise man is superior to any insults which can be put upon him, and the best reply to unseemly behavior is patience and moderation.
+Ignorant men raise questions that wise men answered a thousand years ago.
 
-So much technology, so little talent.
+Those who cannot learn from history are doomed to repeat it.
 
-Keep me away from the wisdom which does not cry, the philosophy which does not laugh and the greatness which does not bow before children.
+We must embrace pain and burn it as fuel for our journey.
 
-Even if you're on the right track, you'll get run over if you just sit there.
+When you dance, your purpose is not to get to a certain place on the floor. It's to enjoy each step along the way.
 
-The day of fortune is like a harvest day, we must be busy when the corn is ripe.
+The most important thing is transforming our minds, for a new way of thinking, a new outlook: we should strive to develop a new inner world.
 
-Nature takes away any faculty that is not used.
+What do we live for, if it is not to make life less difficult for each other?
 
