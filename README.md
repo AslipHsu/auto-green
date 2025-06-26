@@ -1,22 +1,22 @@
-Last updated at 2025-06-26 12:28:53 CST
+Last updated at 2025-06-26 14:30:59 CST
 
-There never was a good knife made of bad steel.
+Trust your own instinct. Your mistakes might as well be your own, instead of someone else's.
 
-The weak can never forgive. Forgiveness is the attribute of the strong.
+He who knows that enough is enough will always have enough.
 
-All difficult things have their origin in that which is easy, and great things in that which is small.
+Be as you wish to seem.
 
-Do not give your attention to what others do or fail to do; give it to what you do or fail to do.
+A friendship founded on business is better than a business founded on friendship.
 
-Iron rusts from disuse; water loses its purity from stagnation... even so does inaction sap the vigor of the mind.
+Friendship is one mind in two bodies.
 
-If you are out to describe the truth, leave elegance to the tailor.
+Wisdom is a kind of knowledge. It is knowledge of the nature, career, and consequences of human values.
 
-Never say there is nothing beautiful in the world anymore. There is always something to make you wonder in the shape of a tree, the trembling of a leaf.
+Life is not a problem to be solved, but a reality to be experienced.
 
-The teacher who is indeed wise does not bid you to enter the house of his wisdom but rather leads you to the threshold of your mind.
+The greatest part of our happiness depends on our dispositions, not our circumstances.
 
-You are a product of your environment. So choose the environment that will best develop you toward your objective. Analyze your life in terms of its environment. Are the things around you helping you toward success - or are they holding you back?
+Technology has to be invented or adopted.
 
-Dreams pass into the reality of action. From the actions stems the dream again; and this interdependence produces the highest form of living.
+When an opponent comes forward, move in and greet him; if he wants to pull back, send him on his way.
 
