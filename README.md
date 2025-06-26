@@ -1,22 +1,22 @@
-Last updated at 2025-06-26 11:18:14 CST
+Last updated at 2025-06-26 12:28:53 CST
 
-The amount of happiness that you have depends on the amount of freedom you have in your heart.
+There never was a good knife made of bad steel.
 
-What is necessary to change a person is to change his awareness of himself.
+The weak can never forgive. Forgiveness is the attribute of the strong.
 
-Change your thoughts and you change your world.
+All difficult things have their origin in that which is easy, and great things in that which is small.
 
-A man who doesn't trust himself can never really trust anyone else.
+Do not give your attention to what others do or fail to do; give it to what you do or fail to do.
 
-In order to live free and happily you must sacrifice boredom. It is not always an easy sacrifice.
+Iron rusts from disuse; water loses its purity from stagnation... even so does inaction sap the vigor of the mind.
 
-The man who trusts men will make fewer mistakes than he who distrusts them.
+If you are out to describe the truth, leave elegance to the tailor.
 
-Love demands infinitely less than friendship.
+Never say there is nothing beautiful in the world anymore. There is always something to make you wonder in the shape of a tree, the trembling of a leaf.
 
-He who knows that enough is enough will always have enough.
+The teacher who is indeed wise does not bid you to enter the house of his wisdom but rather leads you to the threshold of your mind.
 
-We are what we repeatedly do. Excellence, then, is not an act, but a habit.
+You are a product of your environment. So choose the environment that will best develop you toward your objective. Analyze your life in terms of its environment. Are the things around you helping you toward success - or are they holding you back?
 
-When I was 40, my doctor advised me that a man in his 40s shouldn't play tennis. I heeded his advice carefully and could hardly wait until I reached 50 to start again.
+Dreams pass into the reality of action. From the actions stems the dream again; and this interdependence produces the highest form of living.
 
