@@ -1,22 +1,22 @@
-Last updated at 2025-06-26 20:41:48 CST
+Last updated at 2025-06-26 22:19:40 CST
 
-You will never be happy if you continue to search for what happiness consists of. You will never live if you are looking for the meaning of life.
+It is one of the severest tests of friendship to tell your friend his faults. So to love a man that you cannot bear to see a stain upon him, and to speak painful truth through loving words, that is friendship.
 
-Success is not the key to happiness. Happiness is the key to success. If you love what you are doing, you will be successful.
+You don't choose your family. They are God's gift to you, as you are to them.
 
-Wisdom is found only in truth.
+You are not here merely to make a living. You are here in order to enable the world to live more amply, with greater vision, with a finer spirit of hope and achievement. You are here to enrich the world, and you impoverish yourself if you forget the errand.
 
-We make a living by what we get, but we make a life by what we give.
+The mark of your ignorance is the depth of your belief in injustice and tragedy. What the caterpillar calls the end of the world, the Master calls the butterfly.
 
-Ignorant men raise questions that wise men answered a thousand years ago.
+Do not go where the path may lead, go instead where there is no path and leave a trail.
 
-Those who cannot learn from history are doomed to repeat it.
+I have just three things to teach: simplicity, patience, compassion. These three are your greatest treasures.
 
-We must embrace pain and burn it as fuel for our journey.
+We choose our joys and sorrows long before we experience them.
 
-When you dance, your purpose is not to get to a certain place on the floor. It's to enjoy each step along the way.
+The happiness of a man in this life does not consist in the absence but in the mastery of his passions.
 
-The most important thing is transforming our minds, for a new way of thinking, a new outlook: we should strive to develop a new inner world.
+The difference between what we do and what we are capable of doing would suffice to solve most of the world's problems.
 
-What do we live for, if it is not to make life less difficult for each other?
+Setting an example is not the main means of influencing another, it is the only means.
 
