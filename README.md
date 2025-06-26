@@ -1,22 +1,22 @@
-Last updated at 2025-06-26 09:43:02 CST
+Last updated at 2025-06-26 11:18:14 CST
 
-Life is a succession of moments. To live each one is to succeed.
+The amount of happiness that you have depends on the amount of freedom you have in your heart.
 
-Many sophisticated, intelligent people lack wisdom and common sense.
+What is necessary to change a person is to change his awareness of himself.
 
-When an opponent comes forward, move in and greet him; if he wants to pull back, send him on his way.
+Change your thoughts and you change your world.
 
-You are a product of your environment. So choose the environment that will best develop you toward your objective. Analyze your life in terms of its environment. Are the things around you helping you toward success - or are they holding you back?
+A man who doesn't trust himself can never really trust anyone else.
 
-He is no fool who gives what he cannot keep to gain what he cannot lose.
+In order to live free and happily you must sacrifice boredom. It is not always an easy sacrifice.
 
-So long as a person is capable of self-renewal they are a living being.
+The man who trusts men will make fewer mistakes than he who distrusts them.
 
-Opportunity is missed by most people because it is dressed in overalls and looks like work.
+Love demands infinitely less than friendship.
 
-A man is great by deeds, not by birth.
+He who knows that enough is enough will always have enough.
 
-He has no enemies, but is intensely disliked by his friends.
+We are what we repeatedly do. Excellence, then, is not an act, but a habit.
 
-He who is fixed to a star does not change his mind.
+When I was 40, my doctor advised me that a man in his 40s shouldn't play tennis. I heeded his advice carefully and could hardly wait until I reached 50 to start again.
 
