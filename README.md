@@ -1,22 +1,22 @@
-Last updated at 2025-06-26 06:19:03 CST
+Last updated at 2025-06-26 09:43:02 CST
 
-Be slow of tongue and quick of eye.
+Life is a succession of moments. To live each one is to succeed.
 
-There is no great genius without some touch of madness.
+Many sophisticated, intelligent people lack wisdom and common sense.
 
-I have learned that friendship isn't about who you've known the longest, it's about who came and never left your side.
-
-Wisdom has never made a bigot, but learning has.
-
-How wonderful it is that nobody need wait a single moment before starting to improve the world.
-
-The world turns aside to let any man pass who knows where he is going.
-
-A failure is a man who has blundered but is not capable of cashing in on the experience.
+When an opponent comes forward, move in and greet him; if he wants to pull back, send him on his way.
 
 You are a product of your environment. So choose the environment that will best develop you toward your objective. Analyze your life in terms of its environment. Are the things around you helping you toward success - or are they holding you back?
 
-Logic is the beginning of wisdom, not the end.
+He is no fool who gives what he cannot keep to gain what he cannot lose.
 
-It has never been my object to record my dreams, just to realize them.
+So long as a person is capable of self-renewal they are a living being.
+
+Opportunity is missed by most people because it is dressed in overalls and looks like work.
+
+A man is great by deeds, not by birth.
+
+He has no enemies, but is intensely disliked by his friends.
+
+He who is fixed to a star does not change his mind.
 
