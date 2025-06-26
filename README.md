@@ -1,22 +1,22 @@
-Last updated at 2025-06-26 14:30:59 CST
+Last updated at 2025-06-26 16:27:56 CST
 
-Trust your own instinct. Your mistakes might as well be your own, instead of someone else's.
+There are three classes of men; lovers of wisdom, lovers of honor, and lovers of gain.
 
-He who knows that enough is enough will always have enough.
+A fine quotation is a diamond on the finger of a man of wit, and a pebble in the hand of a fool.
 
-Be as you wish to seem.
+If you don't know where you are going, you will probably end up somewhere else.
 
-A friendship founded on business is better than a business founded on friendship.
+You need chaos in your soul to give birth to a dancing star.
 
-Friendship is one mind in two bodies.
+The beginning of wisdom is found in doubting; by doubting we come to the question, and by seeking we may come upon the truth.
 
-Wisdom is a kind of knowledge. It is knowledge of the nature, career, and consequences of human values.
+All our knowledge begins with the senses, proceeds then to the understanding, and ends with reason. There is nothing higher than reason.
 
-Life is not a problem to be solved, but a reality to be experienced.
+As we are liberated from our own fear, our presence automatically liberates others.
 
-The greatest part of our happiness depends on our dispositions, not our circumstances.
+Life is just a chance to grow a soul.
 
-Technology has to be invented or adopted.
+Reality is merely an illusion, albeit a very persistent one.
 
-When an opponent comes forward, move in and greet him; if he wants to pull back, send him on his way.
+What is past is left behind. The future is yet unreached. Whatever quality is present, clearly see it right there.
 
