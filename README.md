@@ -1,22 +1,22 @@
-Last updated at 2025-06-26 16:27:56 CST
+Last updated at 2025-06-26 18:21:56 CST
 
-There are three classes of men; lovers of wisdom, lovers of honor, and lovers of gain.
+The important thing is this: to be able at any moment to sacrifice what we are for what we could become.
 
-A fine quotation is a diamond on the finger of a man of wit, and a pebble in the hand of a fool.
+Short words are best and the old words when short are best of all.
 
-If you don't know where you are going, you will probably end up somewhere else.
+All fixed set patterns are incapable of adaptability or pliability. The truth is outside of all fixed patterns.
 
-You need chaos in your soul to give birth to a dancing star.
+If you smile when no one else is around, you really mean it.
 
-The beginning of wisdom is found in doubting; by doubting we come to the question, and by seeking we may come upon the truth.
+A wise man is superior to any insults which can be put upon him, and the best reply to unseemly behavior is patience and moderation.
 
-All our knowledge begins with the senses, proceeds then to the understanding, and ends with reason. There is nothing higher than reason.
+So much technology, so little talent.
 
-As we are liberated from our own fear, our presence automatically liberates others.
+Keep me away from the wisdom which does not cry, the philosophy which does not laugh and the greatness which does not bow before children.
 
-Life is just a chance to grow a soul.
+Even if you're on the right track, you'll get run over if you just sit there.
 
-Reality is merely an illusion, albeit a very persistent one.
+The day of fortune is like a harvest day, we must be busy when the corn is ripe.
 
-What is past is left behind. The future is yet unreached. Whatever quality is present, clearly see it right there.
+Nature takes away any faculty that is not used.
 
