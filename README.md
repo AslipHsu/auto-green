@@ -1,22 +1,22 @@
-Last updated at 2025-06-27 18:22:08 CST
+Last updated at 2025-06-27 20:40:49 CST
 
-Love is the master key that opens the gates of happiness.
+If you cannot do great things, do small things in a great way.
 
-The virtue of justice consists in moderation, as regulated by wisdom.
+What is new in the world? Nothing. What is old in the world? Nothing. Everything has always been and will always be.
 
-What makes Superman a hero is not that he has power, but that he has the wisdom and the maturity to use the power wisely. From an acting point of view, that's how I approached the part.
+If you fell down yesterday, stand up today.
 
-I will give you a definition of a proud man: he is a man who has neither vanity nor wisdom one filled with hatreds cannot be vain, neither can he be wise.
+Some people are born on third base and go through life thinking they hit a triple.
 
-We gain the strength of the temptation we resist.
+There never was a good knife made of bad steel.
 
-Notice that the stiffest tree is most easily cracked, while the bamboo or willow survives by bending with the wind.
+To be aware of a single shortcoming in oneself is more useful than to be aware of a thousand in someone else.
 
-Memory is the mother of all wisdom.
+What you do today can improve all your tomorrows.
 
-Sometimes being a friend means mastering the art of timing. There is a time for silence. A time to let go and allow people to hurl themselves into their own destiny. And a time to prepare to pick up the pieces when it's all over.
+No man can succeed in a line of endeavor which he does not like.
 
-The greatest obstacle to connecting with our joy is resentment.
+I will not be concerned at other men's not knowing me; I will be concerned at my own want of ability.
 
-God has given you one face, and you make yourself another.
+Bad times have a scientific value. These are occasions a good learner would not miss.
 
