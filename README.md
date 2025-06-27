@@ -1,22 +1,22 @@
-Last updated at 2025-06-27 14:30:34 CST
+Last updated at 2025-06-27 16:27:37 CST
 
-It is not the possession of truth, but the success which attends the seeking after it, that enriches the seeker and brings happiness to him.
+It's supposed to be automatic, but actually you have to push this button.
 
-A good plan violently executed now is better than a perfect plan executed next week.
+Two persons cannot long be friends if they cannot forgive each other's little failings.
 
-The saddest aspect of life right now is that science gathers knowledge faster than society gathers wisdom.
+No one has ever become poor by giving.
 
-Friendship is the marriage of the soul, and this marriage is liable to divorce.
+Never reach out your hand unless you're willing to extend an arm.
 
-The more sand that has escaped from the hourglass of our life, the clearer we should see through it.
+Our lives are the only meaningful expression of what we believe and in Whom we believe. And the only real wealth, for any of us, lies in our faith.
 
-Get busy living or get busy dying.
+Sometimes the most important thing in a whole day is the rest we take between two deep breaths.
 
-My friends are my estate.
+You can't let praise or criticism get to you. It's a weakness to get caught up in either one.
 
-We cannot be more sensitive to pleasure without being more sensitive to pain.
+A rolling stone gathers no moss.
 
-If you break your neck, if you have nothing to eat, if your house is on fire, then you got a problem. Everything else is inconvenience.
+The final wisdom of life requires not the annulment of incongruity but the achievement of serenity within and above it.
 
-We should not judge people by their peak of excellence; but by the distance they have traveled from the point where they started.
+The shoe that fits one person pinches another; there is no recipe for living that suits all cases.
 
