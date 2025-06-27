@@ -1,22 +1,22 @@
-Last updated at 2025-06-27 16:27:37 CST
+Last updated at 2025-06-27 18:22:08 CST
 
-It's supposed to be automatic, but actually you have to push this button.
+Love is the master key that opens the gates of happiness.
 
-Two persons cannot long be friends if they cannot forgive each other's little failings.
+The virtue of justice consists in moderation, as regulated by wisdom.
 
-No one has ever become poor by giving.
+What makes Superman a hero is not that he has power, but that he has the wisdom and the maturity to use the power wisely. From an acting point of view, that's how I approached the part.
 
-Never reach out your hand unless you're willing to extend an arm.
+I will give you a definition of a proud man: he is a man who has neither vanity nor wisdom one filled with hatreds cannot be vain, neither can he be wise.
 
-Our lives are the only meaningful expression of what we believe and in Whom we believe. And the only real wealth, for any of us, lies in our faith.
+We gain the strength of the temptation we resist.
 
-Sometimes the most important thing in a whole day is the rest we take between two deep breaths.
+Notice that the stiffest tree is most easily cracked, while the bamboo or willow survives by bending with the wind.
 
-You can't let praise or criticism get to you. It's a weakness to get caught up in either one.
+Memory is the mother of all wisdom.
 
-A rolling stone gathers no moss.
+Sometimes being a friend means mastering the art of timing. There is a time for silence. A time to let go and allow people to hurl themselves into their own destiny. And a time to prepare to pick up the pieces when it's all over.
 
-The final wisdom of life requires not the annulment of incongruity but the achievement of serenity within and above it.
+The greatest obstacle to connecting with our joy is resentment.
 
-The shoe that fits one person pinches another; there is no recipe for living that suits all cases.
+God has given you one face, and you make yourself another.
 
