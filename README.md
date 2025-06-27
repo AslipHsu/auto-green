@@ -1,22 +1,22 @@
-Last updated at 2025-06-27 22:19:20 CST
+Last updated at 2025-06-28 00:26:13 CST
 
-There is only one way to happiness and that is to cease worrying about things which are beyond the power of our will.
+Take no thought of who is right or wrong or who is better than. Be not for or against.
 
-I always wanted to be somebody, but I should have been more specific.
+Were here for a reason. I believe a bit of the reason is to throw little torches out to lead people through the dark.
 
-Don't wait. The time will never be just right.
+Loss is nothing else but change, and change is Nature's delight.
 
-Practice yourself, for heaven's sake in little things, and then proceed to greater.
+It is easier to live through someone else than to become complete yourself.
 
-Logic will get you from A to B. Imagination will take you everywhere.
+The truth you believe and cling to makes you unavailable to hear anything new.
 
-Every time you smile at someone, it is an action of love, a gift to that person, a beautiful thing.
+I'll prepare and someday my chance will come.
 
-Focusing your life solely on making a buck shows a poverty of ambition. It asks too little of yourself. And it will leave you unfulfilled.
+Happiness does not come about only due to external circumstances; it mainly derives from inner attitudes.
 
-May our hearts garden of awakening bloom with hundreds of flowers.
+Success is where preparation and opportunity meet.
 
-Loyalty and friendship, which is to me the same, created all the wealth that I've ever thought I'd have.
+Failure doesn't mean you are a failure it just means you haven't succeeded yet.
 
-Wherever you go, go with all your heart.
+The more you know yourself, the more you forgive yourself.
 
