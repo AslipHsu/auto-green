@@ -1,22 +1,22 @@
-Last updated at 2025-06-28 02:28:14 CST
+Last updated at 2025-06-28 04:21:54 CST
 
-Let us sacrifice our today so that our children can have a better tomorrow.
+Just as much as we see in others, we have in ourselves.
 
-An invincible determination can accomplish almost anything and in this lies the great distinction between great men and little men.
+Gratitude is the fairest blossom which springs from the soul.
 
-Every man is a volume if you know how to read him.
+I am always ready to learn although I do not always like being taught.
 
-The fox has many tricks. The hedgehog has but one. But that is the best of all.
+Victory belongs to the most persevering.
 
-He who has imagination without learning has wings but no feet.
+The world is but a canvas to the imagination.
 
-There is a magnet in your heart that will attract true friends. That magnet is unselfishness, thinking of others first; when you learn to live for others, they will live for you.
+Can you imagine what I would do if I could do all I can?
 
-How wonderful it is that nobody need wait a single moment before starting to improve the world.
+Love is never lost. If not reciprocated, it will flow back and soften and purify the heart.
 
-Golf is a game in which one endeavors to control a ball with implements ill adapted for the purpose.
+You can always tell a real friend: when you've made a fool of yourself he doesn't feel you've done a permanent job.
 
-All our knowledge begins with the senses, proceeds then to the understanding, and ends with reason. There is nothing higher than reason.
+We could never learn to be brave and patient if there were only joy in the world.
 
-I allow my intuition to lead my path.
+Iron rusts from disuse; water loses its purity from stagnation... even so does inaction sap the vigor of the mind.
 
