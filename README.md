@@ -1,22 +1,22 @@
-Last updated at 2025-06-27 06:18:53 CST
+Last updated at 2025-06-27 09:44:24 CST
 
-Maxim for life: You get treated in life the way you teach people to treat you.
+The two most powerful warriors are patience and time.
 
-The ballot is stronger than the bullet.
+The greater danger for most of us lies not in setting our aim too high and falling short; but in setting our aim too low and achieving our mark.
 
-For it was not into my ear you whispered, but into my heart. It was not my lips you kissed, but my soul.
+Fortune favors the brave.
 
-It is with words as with sunbeams. The more they are condensed, the deeper they burn.
+To be wrong is nothing unless you continue to remember it.
 
-It is not so much our friends' help that helps us, as the confidence of their help.
+I want you to be everything that's you, deep at the center of your being.
 
-I cannot always control what goes on outside. But I can always control what goes on inside.
+There is only one boss. The customer. And he can fire everybody in the company from the chairman on down, simply by spending his money somewhere else.
 
-Better be wise by the misfortunes of others than by your own.
+Imagination is not a talent of some men but is the health of every man.
 
-Time you enjoyed wasting was not wasted.
+It is not only for what we do that we are held responsible, but also for what we do not do.
 
-You can't shake hands with a clenched fist.
+Experience keeps a dear school, but fools will learn in no other.
 
-There never was a good knife made of bad steel.
+Wisdom is always an overmatch for strength.
 
