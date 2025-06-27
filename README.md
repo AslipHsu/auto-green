@@ -1,22 +1,22 @@
-Last updated at 2025-06-27 20:40:49 CST
+Last updated at 2025-06-27 22:19:20 CST
 
-If you cannot do great things, do small things in a great way.
+There is only one way to happiness and that is to cease worrying about things which are beyond the power of our will.
 
-What is new in the world? Nothing. What is old in the world? Nothing. Everything has always been and will always be.
+I always wanted to be somebody, but I should have been more specific.
 
-If you fell down yesterday, stand up today.
+Don't wait. The time will never be just right.
 
-Some people are born on third base and go through life thinking they hit a triple.
+Practice yourself, for heaven's sake in little things, and then proceed to greater.
 
-There never was a good knife made of bad steel.
+Logic will get you from A to B. Imagination will take you everywhere.
 
-To be aware of a single shortcoming in oneself is more useful than to be aware of a thousand in someone else.
+Every time you smile at someone, it is an action of love, a gift to that person, a beautiful thing.
 
-What you do today can improve all your tomorrows.
+Focusing your life solely on making a buck shows a poverty of ambition. It asks too little of yourself. And it will leave you unfulfilled.
 
-No man can succeed in a line of endeavor which he does not like.
+May our hearts garden of awakening bloom with hundreds of flowers.
 
-I will not be concerned at other men's not knowing me; I will be concerned at my own want of ability.
+Loyalty and friendship, which is to me the same, created all the wealth that I've ever thought I'd have.
 
-Bad times have a scientific value. These are occasions a good learner would not miss.
+Wherever you go, go with all your heart.
 
