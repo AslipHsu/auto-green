@@ -1,22 +1,22 @@
-Last updated at 2025-06-27 11:19:16 CST
+Last updated at 2025-06-27 12:28:35 CST
 
-Every problem has a gift for you in its hands.
+As you walk in God's divine wisdom, you will surely begin to see a greater measure of victory and good success in your life.
 
-First-rate people hire first-rate people; second-rate people hire third-rate people.
+The only Zen you find on the tops of mountains is the Zen you bring up there.
 
-Meditation brings wisdom, lack of meditation leaves ignorance. Know well what leads you forward and what holds you back and choose the path that leads to wisdom.
+Gratitude is riches. Complaint is poverty.
 
-Imagination is the living power and prime agent of all human perception.
+The greatest good you can do for another is not just share your riches but reveal to them their own.
 
-It is more shameful to distrust our friends than to be deceived by them.
+It's better to be a lion for a day than a sheep all your life.
 
-Everything you can imagine is real.
+Friendship marks a life even more deeply than love. Love risks degenerating into obsession, friendship is never anything but sharing.
 
-Start where you are. Use what you have. Do what you can.
+Anything you really want, you can attain, if you really go after it.
 
-Ideas are the beginning points of all fortunes.
+The more you know yourself, the more you forgive yourself.
 
-Vanity can easily overtake wisdom. It usually overtakes common sense.
+The least movement is of importance to all nature. The entire ocean is affected by a pebble.
 
-Speak low, if you speak love.
+To fly, we have to have resistance.
 
