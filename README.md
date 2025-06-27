@@ -1,22 +1,22 @@
-Last updated at 2025-06-28 04:21:54 CST
+Last updated at 2025-06-28 06:20:25 CST
 
-Just as much as we see in others, we have in ourselves.
+He who wishes to secure the good of others, has already secured his own.
 
-Gratitude is the fairest blossom which springs from the soul.
+The future is completely open, and we are writing it moment to moment.
 
-I am always ready to learn although I do not always like being taught.
+I think and that is all that I am.
 
-Victory belongs to the most persevering.
+Yeah, we all shine on, like the moon, and the stars, and the sun.
 
-The world is but a canvas to the imagination.
+The greatest remedy for anger is delay.
 
-Can you imagine what I would do if I could do all I can?
+One today is worth two tomorrows.
 
-Love is never lost. If not reciprocated, it will flow back and soften and purify the heart.
+A quarrel between friends, when made up, adds a new tie to friendship.
 
-You can always tell a real friend: when you've made a fool of yourself he doesn't feel you've done a permanent job.
+What we see depends mainly on what we look for.
 
-We could never learn to be brave and patient if there were only joy in the world.
+The superior man is modest in his speech but exceeds in his actions.
 
-Iron rusts from disuse; water loses its purity from stagnation... even so does inaction sap the vigor of the mind.
+It always seems impossible until it's done.
 
