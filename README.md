@@ -1,22 +1,22 @@
-Last updated at 2025-06-27 12:28:35 CST
+Last updated at 2025-06-27 14:30:34 CST
 
-As you walk in God's divine wisdom, you will surely begin to see a greater measure of victory and good success in your life.
+It is not the possession of truth, but the success which attends the seeking after it, that enriches the seeker and brings happiness to him.
 
-The only Zen you find on the tops of mountains is the Zen you bring up there.
+A good plan violently executed now is better than a perfect plan executed next week.
 
-Gratitude is riches. Complaint is poverty.
+The saddest aspect of life right now is that science gathers knowledge faster than society gathers wisdom.
 
-The greatest good you can do for another is not just share your riches but reveal to them their own.
+Friendship is the marriage of the soul, and this marriage is liable to divorce.
 
-It's better to be a lion for a day than a sheep all your life.
+The more sand that has escaped from the hourglass of our life, the clearer we should see through it.
 
-Friendship marks a life even more deeply than love. Love risks degenerating into obsession, friendship is never anything but sharing.
+Get busy living or get busy dying.
 
-Anything you really want, you can attain, if you really go after it.
+My friends are my estate.
 
-The more you know yourself, the more you forgive yourself.
+We cannot be more sensitive to pleasure without being more sensitive to pain.
 
-The least movement is of importance to all nature. The entire ocean is affected by a pebble.
+If you break your neck, if you have nothing to eat, if your house is on fire, then you got a problem. Everything else is inconvenience.
 
-To fly, we have to have resistance.
+We should not judge people by their peak of excellence; but by the distance they have traveled from the point where they started.
 
