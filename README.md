@@ -1,22 +1,22 @@
-Last updated at 2025-06-28 00:26:13 CST
+Last updated at 2025-06-28 02:28:14 CST
 
-Take no thought of who is right or wrong or who is better than. Be not for or against.
+Let us sacrifice our today so that our children can have a better tomorrow.
 
-Were here for a reason. I believe a bit of the reason is to throw little torches out to lead people through the dark.
+An invincible determination can accomplish almost anything and in this lies the great distinction between great men and little men.
 
-Loss is nothing else but change, and change is Nature's delight.
+Every man is a volume if you know how to read him.
 
-It is easier to live through someone else than to become complete yourself.
+The fox has many tricks. The hedgehog has but one. But that is the best of all.
 
-The truth you believe and cling to makes you unavailable to hear anything new.
+He who has imagination without learning has wings but no feet.
 
-I'll prepare and someday my chance will come.
+There is a magnet in your heart that will attract true friends. That magnet is unselfishness, thinking of others first; when you learn to live for others, they will live for you.
 
-Happiness does not come about only due to external circumstances; it mainly derives from inner attitudes.
+How wonderful it is that nobody need wait a single moment before starting to improve the world.
 
-Success is where preparation and opportunity meet.
+Golf is a game in which one endeavors to control a ball with implements ill adapted for the purpose.
 
-Failure doesn't mean you are a failure it just means you haven't succeeded yet.
+All our knowledge begins with the senses, proceeds then to the understanding, and ends with reason. There is nothing higher than reason.
 
-The more you know yourself, the more you forgive yourself.
+I allow my intuition to lead my path.
 
