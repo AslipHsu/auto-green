@@ -1,22 +1,22 @@
-Last updated at 2025-06-27 09:44:24 CST
+Last updated at 2025-06-27 11:19:16 CST
 
-The two most powerful warriors are patience and time.
+Every problem has a gift for you in its hands.
 
-The greater danger for most of us lies not in setting our aim too high and falling short; but in setting our aim too low and achieving our mark.
+First-rate people hire first-rate people; second-rate people hire third-rate people.
 
-Fortune favors the brave.
+Meditation brings wisdom, lack of meditation leaves ignorance. Know well what leads you forward and what holds you back and choose the path that leads to wisdom.
 
-To be wrong is nothing unless you continue to remember it.
+Imagination is the living power and prime agent of all human perception.
 
-I want you to be everything that's you, deep at the center of your being.
+It is more shameful to distrust our friends than to be deceived by them.
 
-There is only one boss. The customer. And he can fire everybody in the company from the chairman on down, simply by spending his money somewhere else.
+Everything you can imagine is real.
 
-Imagination is not a talent of some men but is the health of every man.
+Start where you are. Use what you have. Do what you can.
 
-It is not only for what we do that we are held responsible, but also for what we do not do.
+Ideas are the beginning points of all fortunes.
 
-Experience keeps a dear school, but fools will learn in no other.
+Vanity can easily overtake wisdom. It usually overtakes common sense.
 
-Wisdom is always an overmatch for strength.
+Speak low, if you speak love.
 
