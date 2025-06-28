@@ -1,22 +1,22 @@
-Last updated at 2025-06-28 11:13:50 CST
+Last updated at 2025-06-28 12:24:45 CST
 
-You are important enough to ask and you are blessed enough to receive back.
+Work for something because it is good, not just because it stands a chance to succeed.
 
-Creativity comes from trust. Trust your instincts. And never hope more than you work.
+The best way to pay for a lovely moment is to enjoy it.
 
-The ego is nothing other than the focus of conscious attention.
+Success is getting what you want. Happiness is wanting what you get.
 
-You cannot step twice into the same river, for other waters are continually flowing in.
+I think that novels that leave out technology misrepresent life as badly as Victorians misrepresented life by leaving out sex.
 
-Belief consists in accepting the affirmations of the soul; Unbelief, in denying them.
+Listen to what you know instead of what you fear.
 
-Every man is a damn fool for at least five minutes every day; wisdom consists in not exceeding the limit.
+Better it is to live one day seeing the rise and fall of things than to live a hundred years without ever seeing the rise and fall of things.
 
-Wisdom, compassion, and courage are the three universally recognized moral qualities of men.
+He can who thinks he can, and he can't who thinks he can't. This is an inexorable, indisputable law.
 
-Knowledge comes, but wisdom lingers. It may not be difficult to store up in the mind a vast quantity of facts within a comparatively short time, but the ability to form judgments requires the severe discipline of hard work and the tempering heat of experience and maturity.
+Think how hard physics would be if particles could think.
 
-Once we accept our limits, we go beyond them.
+Those who cling to perceptions and views wander the world offending people.
 
-Conditions fall apart. Persist with diligence.
+All I can say about life is, Oh God, enjoy it!
 
