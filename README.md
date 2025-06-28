@@ -1,22 +1,22 @@
-Last updated at 2025-06-29 00:23:22 CST
+Last updated at 2025-06-29 02:26:18 CST
 
-Anticipate the difficult by managing the easy.
+It's easy to make a buck. It's a lot tougher to make a difference.
 
-The world cares very little about what a man or woman knows; it is what a man or woman is able to do that counts.
+Yesterday I dared to struggle. Today I dare to win.
 
-Persuasion is often more effectual than force.
+Sometimes your joy is the source of your smile, but sometimes your smile can be the source of your joy.
 
-Experience is not what happens to a man. It is what a man does with what happens to him.
+Time changes everything except something within us which is always surprised by change.
 
-Where all think alike, no one thinks very much.
+I do not believe in a fate that falls on men however they act; but I do believe in a fate that falls on them unless they act.
 
-Friendship is a very taxing and arduous form of leisure activity.
+Where there is charity and wisdom, there is neither fear nor ignorance.
 
-Nothing in life is to be feared. It is only to be understood.
+The purpose of learning is growth, and our minds, unlike our bodies, can continue growing as we continue to live.
 
-You can't cross the sea merely by standing and staring at the water.
+The cautious seldom err.
 
-Know how to listen, and you will profit even from those who talk badly.
+Nothing ever goes away until it has taught us what we need to know.
 
-We must not allow ourselves to become like the system we oppose.
+In romance, we feel the need to zoom in and expound on our partner's foibles in intimate detail; in friendship, we tend to do the opposite, avoiding confrontation through fear, lethargy or both.
 
