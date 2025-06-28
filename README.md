@@ -1,22 +1,22 @@
-Last updated at 2025-06-28 09:40:19 CST
+Last updated at 2025-06-28 11:13:50 CST
 
-Loyalty and friendship, which is to me the same, created all the wealth that I've ever thought I'd have.
+You are important enough to ask and you are blessed enough to receive back.
 
-When I dare to be powerful, to use my strength in the service of my vision, then it becomes less and less important whether I am afraid.
+Creativity comes from trust. Trust your instincts. And never hope more than you work.
 
-A true friend is one who overlooks your failures and tolerates your success!
+The ego is nothing other than the focus of conscious attention.
 
-If you lose today, win tomorrow. In this never-ending spirit of challenge is the heart of a victor.
+You cannot step twice into the same river, for other waters are continually flowing in.
 
-Happiness resides not in possessions, and not in gold, happiness dwells in the soul.
+Belief consists in accepting the affirmations of the soul; Unbelief, in denying them.
 
-Friendship is one of our most treasured relationships, but it isn't codified and celebrated; it's never going to give you a party.
+Every man is a damn fool for at least five minutes every day; wisdom consists in not exceeding the limit.
 
-Fortune befriends the bold.
+Wisdom, compassion, and courage are the three universally recognized moral qualities of men.
 
-Do not give your attention to what others do or fail to do; give it to what you do or fail to do.
+Knowledge comes, but wisdom lingers. It may not be difficult to store up in the mind a vast quantity of facts within a comparatively short time, but the ability to form judgments requires the severe discipline of hard work and the tempering heat of experience and maturity.
 
-How is it possible to find meaning in a finite world, given my waist and shirt size?
+Once we accept our limits, we go beyond them.
 
-Blessed is the man who expects nothing, for he shall never be disappointed.
+Conditions fall apart. Persist with diligence.
 
