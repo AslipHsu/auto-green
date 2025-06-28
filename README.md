@@ -1,22 +1,22 @@
-Last updated at 2025-06-28 06:20:25 CST
+Last updated at 2025-06-28 09:40:19 CST
 
-He who wishes to secure the good of others, has already secured his own.
+Loyalty and friendship, which is to me the same, created all the wealth that I've ever thought I'd have.
 
-The future is completely open, and we are writing it moment to moment.
+When I dare to be powerful, to use my strength in the service of my vision, then it becomes less and less important whether I am afraid.
 
-I think and that is all that I am.
+A true friend is one who overlooks your failures and tolerates your success!
 
-Yeah, we all shine on, like the moon, and the stars, and the sun.
+If you lose today, win tomorrow. In this never-ending spirit of challenge is the heart of a victor.
 
-The greatest remedy for anger is delay.
+Happiness resides not in possessions, and not in gold, happiness dwells in the soul.
 
-One today is worth two tomorrows.
+Friendship is one of our most treasured relationships, but it isn't codified and celebrated; it's never going to give you a party.
 
-A quarrel between friends, when made up, adds a new tie to friendship.
+Fortune befriends the bold.
 
-What we see depends mainly on what we look for.
+Do not give your attention to what others do or fail to do; give it to what you do or fail to do.
 
-The superior man is modest in his speech but exceeds in his actions.
+How is it possible to find meaning in a finite world, given my waist and shirt size?
 
-It always seems impossible until it's done.
+Blessed is the man who expects nothing, for he shall never be disappointed.
 
