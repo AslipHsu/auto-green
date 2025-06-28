@@ -1,22 +1,22 @@
-Last updated at 2025-06-29 04:20:19 CST
+Last updated at 2025-06-29 06:17:56 CST
 
-There are three classes of men; lovers of wisdom, lovers of honor, and lovers of gain.
+Love is never lost. If not reciprocated, it will flow back and soften and purify the heart.
 
-The world has the habit of making room for the man whose actions show that he knows where he is going.
+A long habit of not thinking a thing wrong gives it a superficial appearance of being right.
 
-Only through our connectedness to others can we really know and enhance the self. And only through working on the self can we begin to enhance our connectedness to others.
+Great indeed is the sublimity of the Creative, to which all beings owe their beginning, and which permeates all heaven.
 
-A business that makes nothing but money is a poor business.
+Experience is simply the name we give our mistakes.
 
-A man cannot be said to succeed in this life who does not satisfy one friend.
+Constant kindness can accomplish much. As the sun makes ice melt, kindness causes misunderstanding, mistrust, and hostility to evaporate.
 
-Iron rusts from disuse; water loses its purity from stagnation... even so does inaction sap the vigor of the mind.
+A friend is what the heart needs all the time.
 
-Let me tell you the secret that has led me to my goal: my strength lies solely in my tenacity.
+If we learn to open our hearts, anyone, including the people who drive us crazy, can be our teacher.
 
-Friendship always benefits; love sometimes injures.
+Dreams pass into the reality of action. From the actions stems the dream again; and this interdependence produces the highest form of living.
 
-All the great performers I have worked with are fueled by a personal dream.
+Wise men talk because they have something to say; fools, because they have to say something.
 
-In order to live free and happily you must sacrifice boredom. It is not always an easy sacrifice.
+Friends... they cherish one another's hopes. They are kind to one another's dreams.
 
