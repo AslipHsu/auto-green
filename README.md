@@ -1,22 +1,22 @@
-Last updated at 2025-06-28 16:24:37 CST
+Last updated at 2025-06-28 18:19:31 CST
 
-Difficulties increase the nearer we get to the goal.
+Without courage, wisdom bears no fruit.
 
-All action results from thought, so it is thoughts that matter.
+Things do not change; we change.
 
-Learning is finding out what you already know.
+Wherever you go, go with all your heart.
 
-Courage is not the absence of fear, but simply moving on with dignity despite that fear.
+Whoso loves, believes the impossible.
 
-Just as a solid rock is not shaken by the storm, even so the wise are not affected by praise or blame.
+Believe you can and you're halfway there.
 
-Always remember that you are absolutely unique. Just like everyone else.
+Self-trust is the first secret of success.
 
-Difficulties increase the nearer we get to the goal.
+Love is the flower you've got to let grow.
 
-The best cure for the body is a quiet mind.
+Meaning is not what you start with but what you end up with.
 
-Most great people have attained their greatest success just one step beyond their greatest failure.
+A goal is a dream with a deadline.
 
-A really great talent finds its happiness in execution.
+Accept the challenges so that you can feel the exhilaration of victory.
 
