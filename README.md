@@ -1,22 +1,22 @@
-Last updated at 2025-06-29 02:26:18 CST
+Last updated at 2025-06-29 04:20:19 CST
 
-It's easy to make a buck. It's a lot tougher to make a difference.
+There are three classes of men; lovers of wisdom, lovers of honor, and lovers of gain.
 
-Yesterday I dared to struggle. Today I dare to win.
+The world has the habit of making room for the man whose actions show that he knows where he is going.
 
-Sometimes your joy is the source of your smile, but sometimes your smile can be the source of your joy.
+Only through our connectedness to others can we really know and enhance the self. And only through working on the self can we begin to enhance our connectedness to others.
 
-Time changes everything except something within us which is always surprised by change.
+A business that makes nothing but money is a poor business.
 
-I do not believe in a fate that falls on men however they act; but I do believe in a fate that falls on them unless they act.
+A man cannot be said to succeed in this life who does not satisfy one friend.
 
-Where there is charity and wisdom, there is neither fear nor ignorance.
+Iron rusts from disuse; water loses its purity from stagnation... even so does inaction sap the vigor of the mind.
 
-The purpose of learning is growth, and our minds, unlike our bodies, can continue growing as we continue to live.
+Let me tell you the secret that has led me to my goal: my strength lies solely in my tenacity.
 
-The cautious seldom err.
+Friendship always benefits; love sometimes injures.
 
-Nothing ever goes away until it has taught us what we need to know.
+All the great performers I have worked with are fueled by a personal dream.
 
-In romance, we feel the need to zoom in and expound on our partner's foibles in intimate detail; in friendship, we tend to do the opposite, avoiding confrontation through fear, lethargy or both.
+In order to live free and happily you must sacrifice boredom. It is not always an easy sacrifice.
 
