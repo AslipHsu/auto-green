@@ -1,22 +1,22 @@
-Last updated at 2025-06-28 20:37:33 CST
+Last updated at 2025-06-28 22:17:00 CST
 
-To do all that one is able to do, is to be a man; to do all that one would like to do, is to be a god.
+I would maintain that thanks are the highest form of thought, and that gratitude is happiness doubled by wonder.
 
-How many cares one loses when one decides not to be something but to be someone.
+To be wronged is nothing unless you continue to remember it.
 
-Every man is a damn fool for at least five minutes every day; wisdom consists in not exceeding the limit.
+Be faithful in small things because it is in them that your strength lies.
 
-If you do what you've always done, you'll get what you've always gotten.
+One may say the eternal mystery of the world is its comprehensibility.
 
-As a cure for worrying, work is better than whisky.
+If one way be better than another, that you may be sure is nature's way.
 
-Courage is not the absence of fear, but simply moving on with dignity despite that fear.
+Happiness is not in the mere possession of money; it lies in the joy of achievement, in the thrill of creative effort.
 
-Fame usually comes to those who are thinking about something else.
+Either you run the day or the day runs you.
 
-There is nothing permanent except change.
+Wrinkles should merely indicate where smiles have been.
 
-Great are they who see that spiritual is stronger than any material force, that thoughts rule the world.
+Through perseverance many people win success out of what seemed destined to be certain failure.
 
-Study the past, if you would divine the future.
+It is only when the mind and character slumber that the dress can be seen.
 
