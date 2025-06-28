@@ -1,22 +1,22 @@
-Last updated at 2025-06-28 14:27:21 CST
+Last updated at 2025-06-28 16:24:37 CST
 
-Believe you can and you're halfway there.
+Difficulties increase the nearer we get to the goal.
 
-People are not lazy. They simply have impotent goals - that is, goals that do not inspire them.
+All action results from thought, so it is thoughts that matter.
 
-The heart has eyes which the brain knows nothing of.
+Learning is finding out what you already know.
 
-Life is a progress, and not a station.
+Courage is not the absence of fear, but simply moving on with dignity despite that fear.
 
-If you were to offer a thirsty man all wisdom, you would not please him more than if you gave him a drink.
+Just as a solid rock is not shaken by the storm, even so the wise are not affected by praise or blame.
 
-Spread love everywhere you go. Let no one ever come to you without leaving happier.
+Always remember that you are absolutely unique. Just like everyone else.
 
-The most effective way to do it, is to do it.
+Difficulties increase the nearer we get to the goal.
 
-Change will not come if we wait for some other person or some other time. We are the ones we've been waiting for. We are the change that we seek.
+The best cure for the body is a quiet mind.
 
-Knowledge is of no value unless you put it into practice.
+Most great people have attained their greatest success just one step beyond their greatest failure.
 
-The free man is he who does not fear to go to the end of his thought.
+A really great talent finds its happiness in execution.
 
