@@ -1,22 +1,22 @@
-Last updated at 2025-06-28 22:17:00 CST
+Last updated at 2025-06-29 00:23:22 CST
 
-I would maintain that thanks are the highest form of thought, and that gratitude is happiness doubled by wonder.
+Anticipate the difficult by managing the easy.
 
-To be wronged is nothing unless you continue to remember it.
+The world cares very little about what a man or woman knows; it is what a man or woman is able to do that counts.
 
-Be faithful in small things because it is in them that your strength lies.
+Persuasion is often more effectual than force.
 
-One may say the eternal mystery of the world is its comprehensibility.
+Experience is not what happens to a man. It is what a man does with what happens to him.
 
-If one way be better than another, that you may be sure is nature's way.
+Where all think alike, no one thinks very much.
 
-Happiness is not in the mere possession of money; it lies in the joy of achievement, in the thrill of creative effort.
+Friendship is a very taxing and arduous form of leisure activity.
 
-Either you run the day or the day runs you.
+Nothing in life is to be feared. It is only to be understood.
 
-Wrinkles should merely indicate where smiles have been.
+You can't cross the sea merely by standing and staring at the water.
 
-Through perseverance many people win success out of what seemed destined to be certain failure.
+Know how to listen, and you will profit even from those who talk badly.
 
-It is only when the mind and character slumber that the dress can be seen.
+We must not allow ourselves to become like the system we oppose.
 
