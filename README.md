@@ -1,22 +1,22 @@
-Last updated at 2025-06-28 12:24:45 CST
+Last updated at 2025-06-28 14:27:21 CST
 
-Work for something because it is good, not just because it stands a chance to succeed.
+Believe you can and you're halfway there.
 
-The best way to pay for a lovely moment is to enjoy it.
+People are not lazy. They simply have impotent goals - that is, goals that do not inspire them.
 
-Success is getting what you want. Happiness is wanting what you get.
+The heart has eyes which the brain knows nothing of.
 
-I think that novels that leave out technology misrepresent life as badly as Victorians misrepresented life by leaving out sex.
+Life is a progress, and not a station.
 
-Listen to what you know instead of what you fear.
+If you were to offer a thirsty man all wisdom, you would not please him more than if you gave him a drink.
 
-Better it is to live one day seeing the rise and fall of things than to live a hundred years without ever seeing the rise and fall of things.
+Spread love everywhere you go. Let no one ever come to you without leaving happier.
 
-He can who thinks he can, and he can't who thinks he can't. This is an inexorable, indisputable law.
+The most effective way to do it, is to do it.
 
-Think how hard physics would be if particles could think.
+Change will not come if we wait for some other person or some other time. We are the ones we've been waiting for. We are the change that we seek.
 
-Those who cling to perceptions and views wander the world offending people.
+Knowledge is of no value unless you put it into practice.
 
-All I can say about life is, Oh God, enjoy it!
+The free man is he who does not fear to go to the end of his thought.
 
