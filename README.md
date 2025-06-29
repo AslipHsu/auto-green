@@ -1,22 +1,22 @@
-Last updated at 2025-06-30 04:21:00 CST
+Last updated at 2025-06-30 06:18:32 CST
 
-Ignorance never settles a question.
+A really great talent finds its happiness in execution.
 
-Don't judge each day by the harvest you reap but by the seeds that you plant.
+How far that little candle throws its beams! So shines a good deed in a naughty world.
 
-Parents can only give good advice or put them on the right paths, but the final forming of a person's character lies in their own hands.
+No valid plans for the future can be made by those who have no capacity for living now.
 
-If one advances confidently in the direction of his dream, and endeavors to live the life which he had imagines, he will meet with a success unexpected in common hours.
+Forgiveness is that subtle thread that binds both love and friendship. Without forgiveness, you may not even have a child one day.
 
-It is not in the stars to hold our destiny but in ourselves.
+The least of things with a meaning is worth more in life than the greatest of things without it.
 
-If you want things to be different, perhaps the answer is to become different yourself.
+Trouble is only opportunity in work clothes.
 
-Positive thinking will let you do everything better than negative thinking will.
+Great are they who see that spiritual is stronger than any material force, that thoughts rule the world.
 
-You teach best what you most need to learn.
+You cannot change anything in your life with intention alone, which can become a watered-down, occasional hope that you'll get to tomorrow. Intention without action is useless.
 
-The best preparation for tomorrow is doing your best today.
+Always be smarter than the people who hire you.
 
-Tragedy is a tool for the living to gain wisdom, not a guide by which to live.
+The less effort, the faster and more powerful you will be.
 
