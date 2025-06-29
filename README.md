@@ -1,22 +1,22 @@
-Last updated at 2025-06-29 14:28:39 CST
+Last updated at 2025-06-29 16:24:53 CST
 
-Trust your own instinct. Your mistakes might as well be your own, instead of someone else's.
+Truth, and goodness, and beauty are but different faces of the same all.
 
-A man's growth is seen in the successive choirs of his friends
+The sum of wisdom is that time is never lost that is devoted to work.
 
-Intuition is the very force or activity of the soul in its experience through whatever has been the experience of the soul itself.
+No snowflake in an avalanche ever feels responsible.
 
-Hope arouses, as nothing else can arouse, a passion for the possible.
+I'm a great believer in luck and I find the harder I work, the more I have of it.
 
-Don't settle for a relationship that won't let you be yourself.
+Listen to what you know instead of what you fear.
 
-Whatever we expect with confidence becomes our own self-fulfilling prophecy.
+Goals are the fuel in the furnace of achievement.
 
-It is only the great hearted who can be true friends. The mean and cowardly, can never know what true friendship means.
+Give a man a fish and you feed him for a day. Teach him how to fish and you feed him for a lifetime.
 
-A quarrel between friends, when made up, adds a new tie to friendship.
+The world turns aside to let any man pass who knows where he is going.
 
-Friendship without self-interest is one of the rare and beautiful things of life.
+To choose what is difficult all one's days, as if it were easy, that is faith.
 
-One machine can do the work of fifty ordinary men. No machine can do the work of one extraordinary man.
+There are many ways of going forward, but only one way of standing still.
 
