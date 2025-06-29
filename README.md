@@ -1,22 +1,22 @@
-Last updated at 2025-06-30 00:23:15 CST
-
-You always have two choices: your commitment versus your fear.
-
-The weak can never forgive. Forgiveness is the attribute of the strong.
-
-Without courage, wisdom bears no fruit.
-
-Be sure you put your feet in the right place, then stand firm.
+Last updated at 2025-06-30 02:26:38 CST
 
 We can only learn to love by loving.
 
-Better be ignorant of a matter than half know it.
+The more you know yourself, the more you forgive yourself.
 
-The doctor of the future will give no medicine, but will interest her or his patients in the care of the human frame, in a proper diet, and in the cause and prevention of disease.
+When you judge another, you do not define them, you define yourself.
 
-Time is the most valuable thing a man can spend.
+Gratitude is not only the greatest of virtues, but the parent of all the others.
 
-Success is getting what you want. Happiness is wanting what you get.
+We must not say every mistake is a foolish one.
 
-To be wrong is nothing unless you continue to remember it.
+He who knows himself is enlightened.
+
+Work while you have the light. You are responsible for the talent that has been entrusted to you.
+
+What the caterpillar calls the end of the world, the master calls a butterfly.
+
+A little more persistence, a little more effort, and what seemed hopeless failure may turn to glorious success.
+
+If I know what love is, it is because of you.
 
