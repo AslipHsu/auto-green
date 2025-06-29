@@ -1,22 +1,22 @@
-Last updated at 2025-06-29 12:36:08 CST
+Last updated at 2025-06-29 14:28:39 CST
 
-It is the mark of an educated mind to be able to entertain a thought without accepting it.
+Trust your own instinct. Your mistakes might as well be your own, instead of someone else's.
 
-Never deny a diagnosis but do deny the negative verdict that may go with it.
+A man's growth is seen in the successive choirs of his friends
 
-Things do not change; we change.
+Intuition is the very force or activity of the soul in its experience through whatever has been the experience of the soul itself.
 
-Character is like a tree and reputation like a shadow. The shadow is what we think of it; the tree is the real thing.
+Hope arouses, as nothing else can arouse, a passion for the possible.
 
-Give me six hours to chop down a tree and I will spend the first four sharpening the axe.
+Don't settle for a relationship that won't let you be yourself.
 
-In seed time learn, in harvest teach, in winter enjoy.
+Whatever we expect with confidence becomes our own self-fulfilling prophecy.
 
-All I can say about life is, Oh God, enjoy it!
+It is only the great hearted who can be true friends. The mean and cowardly, can never know what true friendship means.
 
-We will develop and cultivate the liberation of mind by lovingkindness, make it our vehicle, make it our basis, stabilize it, exercise ourselves in it, and fully perfect it.
+A quarrel between friends, when made up, adds a new tie to friendship.
 
-We can only learn to love by loving.
+Friendship without self-interest is one of the rare and beautiful things of life.
 
-Difficulties are meant to rouse, not discourage. The human spirit is to grow strong by conflict.
+One machine can do the work of fifty ordinary men. No machine can do the work of one extraordinary man.
 
