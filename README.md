@@ -1,22 +1,22 @@
-Last updated at 2025-06-29 16:24:53 CST
+Last updated at 2025-06-29 18:21:58 CST
 
-Truth, and goodness, and beauty are but different faces of the same all.
+Never put off till tomorrow what you can do today.
 
-The sum of wisdom is that time is never lost that is devoted to work.
+If you surrender to the wind, you can ride it.
 
-No snowflake in an avalanche ever feels responsible.
+The fox has many tricks. The hedgehog has but one. But that is the best of all.
 
-I'm a great believer in luck and I find the harder I work, the more I have of it.
+Tell me and I forget. Teach me and I remember. Involve me and I learn.
 
-Listen to what you know instead of what you fear.
+To be fully alive, fully human, and completely awake is to be continually thrown out of the nest.
 
-Goals are the fuel in the furnace of achievement.
+He who is fixed to a star does not change his mind.
 
-Give a man a fish and you feed him for a day. Teach him how to fish and you feed him for a lifetime.
+To avoid criticism, do nothing, say nothing, be nothing.
 
-The world turns aside to let any man pass who knows where he is going.
+All wisdom does not reside in Delhi.
 
-To choose what is difficult all one's days, as if it were easy, that is faith.
+Time stays long enough for anyone who will use it.
 
-There are many ways of going forward, but only one way of standing still.
+Cherish your visions and your dreams as they are the children of your soul; the blueprints of your ultimate achievements.
 
