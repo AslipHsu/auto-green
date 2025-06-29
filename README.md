@@ -1,22 +1,22 @@
-Last updated at 2025-06-29 11:36:28 CST
+Last updated at 2025-06-29 12:36:08 CST
 
-Every friendship is different because everyone's personality is different.
+It is the mark of an educated mind to be able to entertain a thought without accepting it.
 
-Be as you wish to seem.
+Never deny a diagnosis but do deny the negative verdict that may go with it.
 
-The spirit, the will to win, and the will to excel, are the things that endure. These qualities are so much more important than the events that occur.
+Things do not change; we change.
 
-Make the most of yourself, for that is all there is of you.
+Character is like a tree and reputation like a shadow. The shadow is what we think of it; the tree is the real thing.
 
-Ability is what you're capable of doing. Motivation determines what you do. Attitude determines how well you do it.
+Give me six hours to chop down a tree and I will spend the first four sharpening the axe.
 
-If you do not express your own original ideas, if you do not listen to your own being, you will have betrayed yourself.
+In seed time learn, in harvest teach, in winter enjoy.
 
-How wonderful it is that nobody need wait a single moment before starting to improve the world.
+All I can say about life is, Oh God, enjoy it!
 
-Love is blind; friendship closes its eyes.
+We will develop and cultivate the liberation of mind by lovingkindness, make it our vehicle, make it our basis, stabilize it, exercise ourselves in it, and fully perfect it.
 
-You are a product of your environment. So choose the environment that will best develop you toward your objective. Analyze your life in terms of its environment. Are the things around you helping you toward success - or are they holding you back?
+We can only learn to love by loving.
 
-Where there is great love, there are always miracles.
+Difficulties are meant to rouse, not discourage. The human spirit is to grow strong by conflict.
 
