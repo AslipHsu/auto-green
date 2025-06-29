@@ -1,22 +1,22 @@
-Last updated at 2025-06-29 22:16:58 CST
+Last updated at 2025-06-30 00:23:15 CST
 
-Everything that exists is in a manner the seed of that which will be.
+You always have two choices: your commitment versus your fear.
 
-Friendship is Love without his wings!
+The weak can never forgive. Forgiveness is the attribute of the strong.
 
-Action is the foundational key to all success.
+Without courage, wisdom bears no fruit.
 
-There is no way to happiness, happiness is the way.
+Be sure you put your feet in the right place, then stand firm.
 
-My friends are my estate.
+We can only learn to love by loving.
 
-If we are not given the chance to forget, we are also not given the chance to recover our memories, to alter them with time, perspective, and wisdom. Forgetting, we can be ourselves beyond what the past has told us we are; we can evolve. That is the possibility we want from the future.
+Better be ignorant of a matter than half know it.
 
-Nothing could be worse than the fear that one had given up too soon and left one unexpended effort that might have saved the world.
+The doctor of the future will give no medicine, but will interest her or his patients in the care of the human frame, in a proper diet, and in the cause and prevention of disease.
 
-Judge nothing, you will be happy. Forgive everything, you will be happier. Love everything, you will be happiest.
+Time is the most valuable thing a man can spend.
 
-It is good even for old men to learn wisdom.
+Success is getting what you want. Happiness is wanting what you get.
 
-A friend to all is a friend to none.
+To be wrong is nothing unless you continue to remember it.
 
