@@ -1,22 +1,22 @@
-Last updated at 2025-06-29 20:38:14 CST
+Last updated at 2025-06-29 22:16:58 CST
 
-It is better to understand a little than to misunderstand a lot.
+Everything that exists is in a manner the seed of that which will be.
 
-Love is the attempt to form a friendship inspired by beauty.
+Friendship is Love without his wings!
 
-Do not wait for leaders; do it alone, person to person.
+Action is the foundational key to all success.
 
-Each day provides its own gifts.
+There is no way to happiness, happiness is the way.
 
-You will never be happy if you continue to search for what happiness consists of. You will never live if you are looking for the meaning of life.
+My friends are my estate.
 
-The only way to make sense out of change is to plunge into it, move with it, and join the dance.
+If we are not given the chance to forget, we are also not given the chance to recover our memories, to alter them with time, perspective, and wisdom. Forgetting, we can be ourselves beyond what the past has told us we are; we can evolve. That is the possibility we want from the future.
 
-In the sweetness of friendship let there be laughter and sharing of pleasures. For in the dew of little things the heart finds its morning and is refreshed.
+Nothing could be worse than the fear that one had given up too soon and left one unexpended effort that might have saved the world.
 
-Friendship increases in visiting friends, but in visiting them seldom.
+Judge nothing, you will be happy. Forgive everything, you will be happier. Love everything, you will be happiest.
 
-When something is important enough, you do it even if the odds are not in your favor.
+It is good even for old men to learn wisdom.
 
-As you walk in God's divine wisdom, you will surely begin to see a greater measure of victory and good success in your life.
+A friend to all is a friend to none.
 
