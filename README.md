@@ -1,22 +1,22 @@
-Last updated at 2025-06-29 09:53:06 CST
+Last updated at 2025-06-29 11:36:28 CST
 
-Today you are you! That is truer than true! There is no one alive who is you-er than you!
+Every friendship is different because everyone's personality is different.
 
-Never idealize others. They will never live up to your expectations.
+Be as you wish to seem.
 
-We shall never know all the good that a simple smile can do.
+The spirit, the will to win, and the will to excel, are the things that endure. These qualities are so much more important than the events that occur.
 
-I love my past. I love my present. I'm not ashamed of what I've had, and I'm not sad because I have it no longer.
+Make the most of yourself, for that is all there is of you.
 
-One who gains strength by overcoming obstacles possesses the only strength which can overcome adversity.
+Ability is what you're capable of doing. Motivation determines what you do. Attitude determines how well you do it.
 
-You yourself must strive. The Buddhas only point the way.
+If you do not express your own original ideas, if you do not listen to your own being, you will have betrayed yourself.
 
-It is in your moments of decision that your destiny is shaped.
+How wonderful it is that nobody need wait a single moment before starting to improve the world.
 
-Our greatness lies not so much in being able to remake the world as being able to remake ourselves.
+Love is blind; friendship closes its eyes.
 
-Truth is generally the best vindication against slander.
+You are a product of your environment. So choose the environment that will best develop you toward your objective. Analyze your life in terms of its environment. Are the things around you helping you toward success - or are they holding you back?
 
-Learning never exhausts the mind.
+Where there is great love, there are always miracles.
 
