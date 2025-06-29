@@ -1,22 +1,22 @@
-Last updated at 2025-06-30 02:26:38 CST
+Last updated at 2025-06-30 04:21:00 CST
 
-We can only learn to love by loving.
+Ignorance never settles a question.
 
-The more you know yourself, the more you forgive yourself.
+Don't judge each day by the harvest you reap but by the seeds that you plant.
 
-When you judge another, you do not define them, you define yourself.
+Parents can only give good advice or put them on the right paths, but the final forming of a person's character lies in their own hands.
 
-Gratitude is not only the greatest of virtues, but the parent of all the others.
+If one advances confidently in the direction of his dream, and endeavors to live the life which he had imagines, he will meet with a success unexpected in common hours.
 
-We must not say every mistake is a foolish one.
+It is not in the stars to hold our destiny but in ourselves.
 
-He who knows himself is enlightened.
+If you want things to be different, perhaps the answer is to become different yourself.
 
-Work while you have the light. You are responsible for the talent that has been entrusted to you.
+Positive thinking will let you do everything better than negative thinking will.
 
-What the caterpillar calls the end of the world, the master calls a butterfly.
+You teach best what you most need to learn.
 
-A little more persistence, a little more effort, and what seemed hopeless failure may turn to glorious success.
+The best preparation for tomorrow is doing your best today.
 
-If I know what love is, it is because of you.
+Tragedy is a tool for the living to gain wisdom, not a guide by which to live.
 
