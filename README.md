@@ -1,22 +1,22 @@
-Last updated at 2025-06-30 12:33:49 CST
+Last updated at 2025-06-30 14:31:32 CST
 
-Meaning is not what you start with but what you end up with.
+Of all possessions a friend is the most precious.
 
-Life is just a chance to grow a soul.
+It is time to remember that old wisdom our soldiers will never forget: that whether we are black or brown or white, we all bleed the same red blood of patriots, we all enjoy the same glorious freedoms, and we all salute the same great American Flag.
 
-Friendship with oneself is all important because without it one cannot be friends with anybody else in the world.
+If you surrender to the wind, you can ride it.
 
-It is not the possession of truth, but the success which attends the seeking after it, that enriches the seeker and brings happiness to him.
+The road of excess leads to the palace of wisdom.
 
-I have always thought the actions of men the best interpreters of their thoughts.
+No man is free who is not master of himself.
 
-Happiness is not in the mere possession of money; it lies in the joy of achievement, in the thrill of creative effort.
+Let yourself be silently drawn by the stronger pull of what you really love.
 
-One may say the eternal mystery of the world is its comprehensibility.
+The free man is he who does not fear to go to the end of his thought.
 
-The best thing in every noble dream is the dreamer...
+Being entirely honest with oneself is a good exercise.
 
-A wise man can learn more from a foolish question than a fool can learn from a wise answer.
+To succeed, we must first believe that we can.
 
-Nothing but heaven itself is better than a friend who is really a friend.
+If a man watches three football games in a row, he should be declared legally dead.
 
