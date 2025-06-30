@@ -1,22 +1,22 @@
-Last updated at 2025-06-30 14:31:32 CST
+Last updated at 2025-06-30 16:28:53 CST
 
-Of all possessions a friend is the most precious.
+I can't believe that God put us on this earth to be ordinary.
 
-It is time to remember that old wisdom our soldiers will never forget: that whether we are black or brown or white, we all bleed the same red blood of patriots, we all enjoy the same glorious freedoms, and we all salute the same great American Flag.
+Wisdom cannot come by railroad or automobile or airplane or be hurried up by telegraph or telephone.
 
-If you surrender to the wind, you can ride it.
+The eye sees only what the mind is prepared to comprehend.
 
-The road of excess leads to the palace of wisdom.
+Patience is the companion of wisdom.
 
-No man is free who is not master of himself.
+Science investigates; religion interprets. Science gives man knowledge which is power; religion gives man wisdom which is control.
 
-Let yourself be silently drawn by the stronger pull of what you really love.
+Joy is what happens to us when we allow ourselves to recognize how good things really are.
 
-The free man is he who does not fear to go to the end of his thought.
+I don't want to achieve immortality through my work... I want to achieve it through not dying.
 
-Being entirely honest with oneself is a good exercise.
+Everything in the universe goes by indirection. There are no straight lines.
 
-To succeed, we must first believe that we can.
+Discovery consists of seeing what everybody has seen and thinking what nobody else has thought.
 
-If a man watches three football games in a row, he should be declared legally dead.
+What is not started today is never finished tomorrow.
 
