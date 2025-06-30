@@ -1,22 +1,22 @@
-Last updated at 2025-06-30 06:18:32 CST
+Last updated at 2025-06-30 09:48:53 CST
 
-A really great talent finds its happiness in execution.
+Love all, trust a few, do wrong to none.
 
-How far that little candle throws its beams! So shines a good deed in a naughty world.
+The free man is he who does not fear to go to the end of his thought.
 
-No valid plans for the future can be made by those who have no capacity for living now.
+Friendship is the source of the greatest pleasures, and without friends even the most agreeable pursuits become tedious.
 
-Forgiveness is that subtle thread that binds both love and friendship. Without forgiveness, you may not even have a child one day.
+There's power in looking silly and not caring that you do.
 
-The least of things with a meaning is worth more in life than the greatest of things without it.
+In all things of nature there is something of the marvelous.
 
-Trouble is only opportunity in work clothes.
+Do good by stealth, and blush to find it fame.
 
-Great are they who see that spiritual is stronger than any material force, that thoughts rule the world.
+A wise person should be urgently moved on occasions that make for urgency.
 
-You cannot change anything in your life with intention alone, which can become a watered-down, occasional hope that you'll get to tomorrow. Intention without action is useless.
+Learning is finding out what you already know.
 
-Always be smarter than the people who hire you.
+Yeah, we all shine on, like the moon, and the stars, and the sun.
 
-The less effort, the faster and more powerful you will be.
+The universe is transformation; our life is what our thoughts make it.
 
