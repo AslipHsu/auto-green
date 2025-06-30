@@ -1,22 +1,22 @@
-Last updated at 2025-06-30 09:48:53 CST
+Last updated at 2025-06-30 11:24:47 CST
 
-Love all, trust a few, do wrong to none.
+The truest wisdom is a resolute determination.
 
-The free man is he who does not fear to go to the end of his thought.
+We must become the change we want to see.
 
-Friendship is the source of the greatest pleasures, and without friends even the most agreeable pursuits become tedious.
+You got to be careful if you don't know where you're going, because you might not get there.
 
-There's power in looking silly and not caring that you do.
+Don't turn away from possible futures before you're certain you don't have anything to learn from them.
 
-In all things of nature there is something of the marvelous.
+The more you like yourself, the less you are like anyone else, which makes you unique.
 
-Do good by stealth, and blush to find it fame.
+The more you care, the stronger you can be.
 
-A wise person should be urgently moved on occasions that make for urgency.
+Finding good players is easy. Getting them to play as a team is another story.
 
-Learning is finding out what you already know.
+Life's most persistent and urgent question is, 'What are you doing for others?'
 
-Yeah, we all shine on, like the moon, and the stars, and the sun.
+By believing passionately in something that does not yet exist, we create it.
 
-The universe is transformation; our life is what our thoughts make it.
+Be sure you put your feet in the right place, then stand firm.
 
