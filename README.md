@@ -1,22 +1,22 @@
-Last updated at 2025-06-30 11:24:47 CST
+Last updated at 2025-06-30 12:33:49 CST
 
-The truest wisdom is a resolute determination.
+Meaning is not what you start with but what you end up with.
 
-We must become the change we want to see.
+Life is just a chance to grow a soul.
 
-You got to be careful if you don't know where you're going, because you might not get there.
+Friendship with oneself is all important because without it one cannot be friends with anybody else in the world.
 
-Don't turn away from possible futures before you're certain you don't have anything to learn from them.
+It is not the possession of truth, but the success which attends the seeking after it, that enriches the seeker and brings happiness to him.
 
-The more you like yourself, the less you are like anyone else, which makes you unique.
+I have always thought the actions of men the best interpreters of their thoughts.
 
-The more you care, the stronger you can be.
+Happiness is not in the mere possession of money; it lies in the joy of achievement, in the thrill of creative effort.
 
-Finding good players is easy. Getting them to play as a team is another story.
+One may say the eternal mystery of the world is its comprehensibility.
 
-Life's most persistent and urgent question is, 'What are you doing for others?'
+The best thing in every noble dream is the dreamer...
 
-By believing passionately in something that does not yet exist, we create it.
+A wise man can learn more from a foolish question than a fool can learn from a wise answer.
 
-Be sure you put your feet in the right place, then stand firm.
+Nothing but heaven itself is better than a friend who is really a friend.
 
